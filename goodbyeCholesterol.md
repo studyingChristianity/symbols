@@ -1,6 +1,13 @@
 
+<h3>👍🏻 Exercise: Aim for 30-60 minutes, 5 days a week</h3>
+
+---
+
+<h3>Foods & Drinks</h3>
+
 🏝️ | Eat 👍🏻 | Avoid 👎🏻
 -- | -- | --
+🩶 | 🩶 | Sugary drinks, sweets
 Meats | Fish rich in Omega-3: Salmon, Sardines, oysters, Canned Tuna in Water, Trout <br/> Chicken and Turkey, without skin<br/>Meats low in fat<br/>Egg whites, or Egg substitute | Fried meats, Carnitas, Sausage, Hot Dogs, Bologna, Bacon, Chorizo, Tripe, Brains, Intestines, Liver, Kidneys, Tongue, Egg yolks, Cracklings
 Beans | Boiled beans<br/>Lentils<br/>Peas<br/>Garbanzos/Chickpeas | Fried or refried beans
 Breads and Grains | Oats, Whole grain, Oat bran cereals, Brown rice, Quinoa<br/> Corn Tortillas, 100% Whole Wheat Bread | Flour tortillas<br/>White bread<br/>Tostadas<br/>Tamales<br/>Chips<br/>Cereals with sugar<br/>Sweet breads
