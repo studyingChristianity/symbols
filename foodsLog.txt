@@ -1,3 +1,11 @@
+
+1. Cholesterol, total  (👍🏻 < 200 mg/dL) : 207 ➡️ 
+2. HDL Cholesterol     (👍🏻 >= 50 mg/dL) :  47 ➡️ 
+3. LDL Cholesterol     (👍🏻 < 100 mg/dL) : 125 ➡️ 
+4. Triglycerides       (👍🏻 < 150 mg/dL) : 201 ➡️ 
+5. Non-HDL Cholesterol (👍🏻 < 130 mg/dL) : 160 ➡️ 
+
+==========================================================
 Quinoa
 Greek non-fat yogurt
 
