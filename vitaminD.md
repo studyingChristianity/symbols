@@ -16,7 +16,7 @@ Because few foods naturally contain it, many people rely on sunlight exposure, f
 
 ---
 Plant-based Vitamin D:
-* Pelant-based milks (soy, almond, oat, etc.)
+* Plant-based milks (soy, almond, oat, etc.)
 * Mushrooms (portobello, maitake, shiitake, etc.)
 
 Animal-based Vitamin D
