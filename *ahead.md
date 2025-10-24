@@ -5,7 +5,6 @@
 
 |Date|📌|
 |--|--|
-|10/23/2025 35 more days|📌|
 |10/24/2025 34 more days|Flu shot|
 |10/25/2025 33 more days|📌|
 |10/26/2025 32 more days|📌|
