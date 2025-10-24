@@ -4,8 +4,8 @@
 Cholesterol, total | 👍🏻 < 200 mg/dL | 207  | 🔽 | 204
 HDL Cholesterol | 👍🏻 >= 50 mg/dL | 47 | 🔼 | 👍🏻53
 LDL Cholesterol | 👍🏻 < 100 mg/dL | 125 | 🔼 | 126
-Triglycerides | 👍🏻 < 150 mg/dL | 201 | ➡️ | 👍🏻135
-Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | ➡️ | 151
+Triglycerides | 👍🏻 < 150 mg/dL | 201 | 🔽 | 👍🏻135
+Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151
 
 <h3>HDL Cholesterol</h3>
 The level of HDL cholesterol circulating in the blood can help determine your risk for heart disease. The National Heart, Lung, and Blood Institute (NHLBI) considers an HDL cholesterol level of less than 50 mg/dL in women 20 years of age and older to be a risk factor for heart disease. HDL cholesterol is considered the “good” cholesterol and a level equal to or above 60 mg/dL may reduce the risk of heart disease. Other cholesterol measurements, alongside patient characteristics, should be taken into consideration when determining a person’s risk level for heart disease and monitoring for therapy (lifestyle modifications or medication) responses.
