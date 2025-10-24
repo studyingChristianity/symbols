@@ -57,3 +57,11 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 </p>
 
 <h1>2. Exercising ➡️</h1>
+
+* Walk
+* Standing cross-body sit-ups
+* Lounges
+* Kicking-backward squats
+* Jumps
+* W/weights: Elbows up
+* W/weights: Arms
