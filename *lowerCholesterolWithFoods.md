@@ -10,9 +10,9 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 5. Non-HDL Cholesterol (👍🏻 < 130 mg/dL) : 160 ➡️ 151
 
-==========================================================
-Changing diet: Oct 4, 2025 ➡️
-==========================================================
+
+<h1>Changing diet: Oct 4, 2025 ➡️</h1>
+
 Quinoa
 Greek non-fat yogurt
 
