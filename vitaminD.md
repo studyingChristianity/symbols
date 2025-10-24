@@ -12,8 +12,8 @@ Two main forms:
 
 * weakened bones
 * fatigue
-* increased risk of osteoporosis
-* rickets
+* increased risk of [osteoporosis](https://www.mayoclinic.org/diseases-conditions/osteoporosis/symptoms-causes/syc-20351968)
+* [rickets](https://my.clevelandclinic.org/health/diseases/22459-rickets)
 * immune disorders
 
 ---
