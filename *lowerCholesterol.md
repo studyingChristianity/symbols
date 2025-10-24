@@ -56,7 +56,7 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * Fiber supplement
 </p>
 
-<h1>2. Exercising ➡️</h1>
+<h1>2. Exercising: Oct 25, 2025 ➡️</h1>
 
 * Walk
 * Standing cross-body sit-ups
