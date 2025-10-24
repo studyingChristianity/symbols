@@ -5,11 +5,10 @@
 
 |Date|📌|
 |--|--|
-|10/24/2025 34 more days|Flu shot|
 |10/25/2025 33 more days|📌|
 |10/26/2025 32 more days|📌|
 |10/27/2025 31 more days|📌|
-|10/28/2025 30 more days|Dental cleaning & exam, Check blood test results|
+|10/28/2025 30 more days|Dental cleaning & exam|
 |10/29/2025 29 more days|📌|
 |10/30/2025 28 more days|📌|
 |10/31/2025 27 more days|📌|
