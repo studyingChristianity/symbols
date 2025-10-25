@@ -73,3 +73,11 @@ Cycling (stationary or outdoor) |	30–45 min |	Moderate–vigorous	| Aim for st
 Swimming | 30–45 min	| Moderate | Whole-body exercise that’s easy on joints.
 Jogging/Running	| 20–30 min	| Vigorous | If tolerated; raises HDL effectively.
 Dancing / Aerobics / Zumba	| 30–60 min	| Moderate–vigorous | Fun and effective for consistency.
+
+| Time               | Activity                     | Goal                               |
+| ------------------ | ---------------------------- | ---------------------------------- |
+| **7:00 AM**        | Brisk morning walk           | Improve fat metabolism and help reduce total cholesterol |
+| **12:30 PM**       | Easy walk after lunch        | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **7:30 PM**        | Easy walk after dinner       | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **Been Sitting for >1 Hour** | Walk break | Helps counteract the cholesterol-raising effects of prolonged sitting |
+
