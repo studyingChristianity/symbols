@@ -58,11 +58,8 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 <h1>2. Exercising: Oct 25, 2025 ➡️</h1>
 
-<h2>Aerobic (“Cardio”) Exercise</h2>
-
-* Aerobic activity helps your body use fats for energy and increases HDL cholesterol.
+* Aerobic (cardio) activity helps your body use fats for energy and increases HDL cholesterol.
 * 150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
-
 
 | Time | Activity | Goal |
 | -- | -- | -- |
