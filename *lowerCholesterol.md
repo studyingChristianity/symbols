@@ -64,7 +64,7 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 | Time | Activity | Goal |
 | -- | -- | -- |
 | **Just woke up** (30 min) | Move to music | Improve fat metabolism and help reduce total cholesterol |
-| **After lunch** (10 min) | Easy walk in  the neighborhood | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **After lunch** (10 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
 | **After dinner** (20 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
 | **Been sitting for >1hr** (5 min) | Move to music | Helps counteract the cholesterol-raising effects of prolonged sitting |
 
