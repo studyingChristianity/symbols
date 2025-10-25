@@ -60,24 +60,14 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 <h2>Aerobic (“Cardio”) Exercise</h2>
 
-Aerobic activity helps your body use fats for energy and increases HDL cholesterol.
+* Aerobic activity helps your body use fats for energy and increases HDL cholesterol.
+* 150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
 
-150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
 
-Examples & Details:
-
-Type | Duration | Intensity | Description
--- | -- | -- | --
-Brisk Walking |	30–60 min/day |	Moderate |	Walk fast enough to raise your heart rate but still talk in short sentences.
-Cycling (stationary or outdoor) |	30–45 min |	Moderate–vigorous	| Aim for steady pace; hills or resistance increase benefits.
-Swimming | 30–45 min	| Moderate | Whole-body exercise that’s easy on joints.
-Jogging/Running	| 20–30 min	| Vigorous | If tolerated; raises HDL effectively.
-Dancing / Aerobics / Zumba	| 30–60 min	| Moderate–vigorous | Fun and effective for consistency.
-
-| Time               | Activity                     | Goal                               |
-| ------------------ | ---------------------------- | ---------------------------------- |
-| **7:00 AM**        | Brisk morning walk           | Improve fat metabolism and help reduce total cholesterol |
-| **12:30 PM**       | Easy walk after lunch        | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
-| **7:30 PM**        | Easy walk after dinner       | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
-| **Been Sitting for >1 Hour** | Walk break | Helps counteract the cholesterol-raising effects of prolonged sitting |
+| Time | Activity | Goal |
+| -- | -- | -- |
+| **Just woke up** (30 min) | Move to music | Improve fat metabolism and help reduce total cholesterol |
+| **After lunch** (10 min) | Easy walk in  the neighborhood | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **After dinner** (20 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **Been sitting for >1hr** (5 min) | Move to music | Helps counteract the cholesterol-raising effects of prolonged sitting |
 
