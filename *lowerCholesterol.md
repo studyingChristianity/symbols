@@ -58,10 +58,18 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 <h1>2. Exercising: Oct 25, 2025 ➡️</h1>
 
-* Walk
-* Standing cross-body sit-ups
-* Lounges
-* Kicking-backward squats
-* Jumps
-* W/weights: Elbows up
-* W/weights: Arms
+<h2>Aerobic (“Cardio”) Exercise</h2>
+
+Aerobic activity helps your body use fats for energy and increases HDL cholesterol.
+
+150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
+
+Examples & Details:
+
+Type | Duration | Intensity | Description
+-- | -- | -- | --
+Brisk Walking |	30–60 min/day |	Moderate |	Walk fast enough to raise your heart rate but still talk in short sentences.
+Cycling (stationary or outdoor) |	30–45 min |	Moderate–vigorous	| Aim for steady pace; hills or resistance increase benefits.
+Swimming | 30–45 min	| Moderate | Whole-body exercise that’s easy on joints.
+Jogging/Running	| 20–30 min	| Vigorous | If tolerated; raises HDL effectively.
+Dancing / Aerobics / Zumba	| 30–60 min	| Moderate–vigorous | Fun and effective for consistency.
