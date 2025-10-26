@@ -65,3 +65,17 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 | -- | -- | -- |
 | **After lunch** (10 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
 | **After dinner** (20 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+
+<h2>🧠 How light exercise after a meal helps:</h2>
+
+* **Improves digestion:** Gentle movement <ins>increases blood flow to your digestive organs</ins>, helping your stomach and intestines process food more efficiently. It stimulates peristalsis (the wave-like contractions that move food through your digestive tract), reducing bloating and discomfort.
+
+* **Regulates blood sugar levels:** After eating, your blood glucose naturally rises. Light activity helps your muscles absorb glucose from your bloodstream for energy, which <ins>lowers post-meal blood sugar spikes</ins>. This is especially beneficial for people with insulin resistance or type 2 diabetes.
+
+* **Supports heart health:** <ins>Keeping post-meal blood sugar and fat levels stable</ins> reduces stress on your cardiovascular system over time.
+
+* **Boosts metabolism:** Even light exercise <ins>increases metabolic rate slightly</ins>, which can help with calorie balance and weight management.
+
+* **Reduces fatigue and sluggishness:** Movement helps counteract the common “post-meal slump” by <ins>increasing circulation and oxygen delivery to tissues and the brain</ins>.
+
+* **Improves mood:** Light physical activity <ins>triggers the release of endorphins and serotonin, improving mood and reducing stress</ins>.
