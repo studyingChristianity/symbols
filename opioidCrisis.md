@@ -9,21 +9,21 @@ They’re found in the brain, spinal cord, and gut — especially dense in the v
 
 <h2>2. Inhibition of GABAergic neurons</h2>
 
-Normally, _GABA_ neurons in the VTA _inhibit dopamine release_.
+Normally, **GABA** neurons in the VTA **inhibit dopamine release**.
 
-When _opioids_ bind to MORs on these GABA neurons, they suppress GABA activity, which _removes this inhibition_ — a process called disinhibition.
+When **opioids** bind to MORs on these GABA neurons, they suppress GABA activity, which **removes this inhibition** — a process called disinhibition.
 
 <h2>3. Increased dopamine release</h2>
 
 With GABA “brakes” lifted, dopamine floods the nucleus accumbens.
 
-This dopamine surge produces feelings of pleasure, safety, and comfort — part of the “reward” sensation.
+**This dopamine surge produces feelings of pleasure, safety, and comfort** — part of the “reward” sensation.
 
 <h2>4. Effects on the limbic system and brainstem</h2>
 
 In the amygdala and periaqueductal gray, opioids reduce the perception of pain and stress.
 
-In the hypothalamus, they can induce a sense of warmth and calm.
+In the hypothalamus, they can induce **a sense of warmth and calm**.
 
 The locus coeruleus, involved in arousal and anxiety, is dampened — further enhancing relaxation.
 
@@ -31,7 +31,6 @@ The locus coeruleus, involved in arousal and anxiety, is dampened — further en
 
 Your body makes its own opioids (endorphins, enkephalins, dynorphins).
 
-Exercise, social bonding, laughter, or even comforting touch can activate the same pathways — but in a controlled, healthy way.
+**Exercise, social bonding, laughter, or even comforting touch can activate the same pathways — but in a controlled, healthy way.**
 
-<br/>
 So, that feeling of “comfort” is really the nervous system’s reward and pain-relief machinery being pushed to an extreme.
