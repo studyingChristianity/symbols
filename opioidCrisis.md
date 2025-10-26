@@ -9,9 +9,9 @@ They’re found in the brain, spinal cord, and gut — especially dense in the v
 
 <h2>2. Inhibition of GABAergic neurons</h2>
 
-Normally, GABA neurons in the VTA inhibit dopamine release.
+Normally, _GABA_ neurons in the VTA _inhibit dopamine release_.
 
-When opioids bind to MORs on these GABA neurons, they suppress GABA activity, which removes this inhibition — a process called disinhibition.
+When _opioids_ bind to MORs on these GABA neurons, they suppress GABA activity, which _removes this inhibition_ — a process called disinhibition.
 
 <h2>3. Increased dopamine release</h2>
 
