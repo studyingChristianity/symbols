@@ -45,17 +45,3 @@ Two main forms:
 
 ---
 Because few foods naturally contain it, **many people rely on sunlight exposure, fortified foods, or supplements** to meet daily requirements.
-
----
-💡 Recommended to take 600–800 IU (15–20 µg) of Vitamin D per day. Exposure to the sun decreases the value.
-
----
-<h3>Plant-based Vitamin D:</h3>
-
-* Plant-based milks (soy, almond, oat, etc.)
-* Mushrooms (portobello, maitake, shiitake, etc.)
-
-<h3>Animal-based Vitamin D:</h3>
-
-* Fish (Salmon, Mackerel, Sardines, Tuna, Trout, Herring)
-* Fortified orange juice
