@@ -1,5 +1,4 @@
-Here’s a **concise summary** of the **effects of alcohol**, organized in **tables** by system and dose level:
-
+# Effects of Alcohol
 ---
 
 ### 🧠 **General Effects by Blood Alcohol Concentration (BAC)**
@@ -37,7 +36,3 @@ Here’s a **concise summary** of the **effects of alcohol**, organized in **tab
 | **Behavior**  | Disinhibition, aggression, risk-taking          |
 | **Cognition** | Impaired memory, judgment, and concentration    |
 | **Social**    | Conflict, accidents, legal and financial issues |
-
----
-
-Would you like a **visual summary (infographic/table image)** version of this too?
