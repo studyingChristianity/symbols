@@ -3,6 +3,8 @@
 
 ### 🧠 **General Effects by Blood Alcohol Concentration (BAC)**
 
+The illegal blood alcohol concentration (BAC) level for driving: 0.08%
+
 | **BAC (%)** | **Level**   | **Effects**                                                   |
 | ----------- | ----------- | ------------------------------------------------------------- |
 | 0.01–0.05   | Mild        | Relaxation, lowered inhibitions, mild euphoria                |
