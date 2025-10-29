@@ -1,6 +1,6 @@
-# Nicotine’s Effects
+# Effects of Nicotine
 
-### 🧠 **Central Nervous System (CNS) Effects**
+## 🧠 **Central Nervous System (CNS) Effects**
 
 | **Effect**          | **Mechanism**                                        | **Outcome**                           |
 | ------------------- | ---------------------------------------------------- | ------------------------------------- |
@@ -9,9 +9,7 @@
 | Mood modulation     | Influences serotonin and endorphins                  | Temporary relaxation or stress relief |
 | Dependence          | Neuroadaptation to nicotine                          | Craving, withdrawal symptoms          |
 
----
-
-### ❤️ **Cardiovascular Effects**
+## ❤️ **Cardiovascular Effects**
 
 | **Effect**                 | **Mechanism**                             | **Outcome**             |
 | -------------------------- | ----------------------------------------- | ----------------------- |
@@ -19,9 +17,7 @@
 | Vasoconstriction           | Release of epinephrine                    | Elevated blood pressure |
 | Increased cardiac workload | Higher oxygen demand                      | Risk of heart disease   |
 
----
-
-### 🫁 **Respiratory and Systemic Effects**
+## 🫁 **Respiratory and Systemic Effects**
 
 | **Effect**           | **Mechanism**                  | **Outcome**                           |
 | -------------------- | ------------------------------ | ------------------------------------- |
@@ -29,9 +25,7 @@
 | Insulin resistance   | Affects pancreatic function    | Elevated blood glucose                |
 | Appetite suppression | Central hypothalamic effects   | Weight loss tendency                  |
 
----
-
-### ⚠️ **Long-Term Effects and Risks**
+## ⚠️ **Long-Term Effects and Risks**
 
 | **Category**   | **Effect**                                       | **Notes**                                         |
 | -------------- | ------------------------------------------------ | ------------------------------------------------- |
