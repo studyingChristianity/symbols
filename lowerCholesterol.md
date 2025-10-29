@@ -63,8 +63,8 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 | Time | Activity | Goal |
 | -- | -- | -- |
-| **After lunch** (10 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
-| **After dinner** (20 min) | Move to music | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **After lunch** (10 min) | Light walking | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
+| **After dinner** (20 min) | Light walking | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
 
 <h2>🧠 How light exercise after a meal helps:</h2>
 
