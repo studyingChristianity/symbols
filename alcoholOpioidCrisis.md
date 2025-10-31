@@ -68,6 +68,8 @@ The illegal blood alcohol concentration (BAC) level for driving: 0.08%
 
 <h1>Opioid Effects</h1>
 
+Mortality rate of Opioid users: 1.5% (1,2 every 50)
+
 <h2>1. Opioids bind to μ-opioid receptors (MORs)</h2>
 
 These receptors are part of the body’s endogenous opioid system, which naturally helps regulate pain, stress, and reward.
