@@ -1,4 +1,6 @@
-The history of **THC (tetrahydrocannabinol)** — the main psychoactive compound in cannabis — is a fascinating mix of ancient use, modern chemistry, and shifting cultural and legal attitudes. Here’s a timeline-style overview:
+[What is THC?](https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)
+
+[History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)
 
 ---
 
