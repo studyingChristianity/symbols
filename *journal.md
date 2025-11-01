@@ -1,13 +1,4 @@
 ***************************************************************
-**🌟TAKE A BLOOD TEST TO MEASURE CHOLESTEROL VALUES🌟**
----------------------------------------------------------------
-Next appointment: 8:10 am on Friday, November 14, 2025
-
-**🌟RENEW FACIAL CELLS🌟**
----------------------------------------------------------------
-🚀 ZIIP every other day 🚿 Shower every other day (Alternate)<br/>
-🪥 Brush teeth every morning and night
-
 **🌟STRENGTHEN INNER-BODY MUSCLES🌟**
 ---------------------------------------------------------------
 🚶🏻‍♀️ Easy-walking for 10 minutes after lunch, 20 minutes after dinner
