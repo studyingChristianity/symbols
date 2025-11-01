@@ -163,7 +163,7 @@ Illicit drug production affects **both producers** and **consumers**, often with
 | Category                             | Mechanism                                              | Health Outcomes                                 |
 | ------------------------------------ | ------------------------------------------------------ | ----------------------------------------------- |
 | **Addiction and dependence**         | Neurochemical changes from psychoactive drugs.         | Chronic dependency, cognitive decline.          |
-| **Overdose risk**                    | Unknown potency, adulteration (esp. fentanyl).         | Overdose deaths (e.g., U.S. fentanyl crisis).   |
+| **Overdose risk**                    | Unknown potency, adulteration (esp. fentanyl). Adulteration = the action of making something poorer in quality by the addition of another substance.         | Overdose deaths (e.g., U.S. fentanyl crisis).   |
 | **Infectious diseases**              | Injection drug use → shared needles.                   | HIV, hepatitis B/C epidemics.                   |
 | **Mental health**                    | Drug-induced psychosis, depression, anxiety.           | High co-occurrence with substance use disorder. |
 | **Nutritional and physical neglect** | Long-term users often face malnutrition, poor hygiene. | Homelessness, comorbidity.                      |
