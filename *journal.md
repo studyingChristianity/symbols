@@ -9,10 +9,11 @@
 
 # Sat, 11/1/2025
 
-Christians who believe they are gods or who believe in a god
-= ナルシ族
+#### <ins>ナルシ族 = Those who believe they are gods or who believe in a god</ins>
 
-Illega drug sales:
+#### <ins>NOTE: The majoirity of ナルシ族 are Christians</ins>
+
+### 🚨Illega drug sales🚨
 
 - Illicit resale of prescription drugs
 - Exploiting regulatory loopholes - Sold online as "not for human consumption" or "for research purposes only"
