@@ -2,7 +2,7 @@
 
 [tell me how drug making activities are related to public health issues.](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#tell-me-how-drug-making-activities-are-related-to-public-health-issues)
 
-[https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#the-transitionalgray-drug-market)
+[The Transitional/Gray Drug Market](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#the-transitionalgray-drug-market)
 
 ---
 
