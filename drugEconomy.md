@@ -1,4 +1,4 @@
-[The Transitional/Gray Drug Market](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#please-tell-me-as-much-as-possible-about-the-drug-economy-with-tables-where-that-would-be-most-efficient)
+[please tell me as much as possible about the drug economy, with tables where that would be most efficient](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md)
 
 [tell me how drug making activities are related to public health issues.](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#tell-me-how-drug-making-activities-are-related-to-public-health-issues)
 
