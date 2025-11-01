@@ -34,11 +34,14 @@ Next appointment: 8:10 am on Friday, November 14, 2025
 ### ☄️New Christians☄️
 
 Transformations:
-1) drug-making activities (public health issues)
-2) dead bodies (public health issues)
-3) Christian candles (public health issues)
-4) opioid/fentanyl (pain killer > comfort > safety > pleasure > Missionary)
-5) alcohol (causes you a cognitive decline)
+1) 🗡️drug-making activities (public health issues)
+2) 🗡️dead bodies (public health issues)
+3) 🗡️Christian candles (public health issues)
+4) 🗡️opioid/fentanyl (pain killer > comfort > safety > pleasure > Missionary)
+5) 🗡️alcohol (causes you a cognitive decline)
+6) 🧪style, wardrobe & visual presentation
+7) 🧪cosmetic procedures & aesthetic interventions
+8) 🧪psychological & mindset work
 
 ### 🚨Old Christians🚨
 Christians in the South of the United States (the last indigenous
