@@ -1,4 +1,4 @@
-[What is THC?](https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)
+[What is THC?](https://github.com/studyingChristianity/symbols/blob/main/thc.md)
 
 [History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)
 
