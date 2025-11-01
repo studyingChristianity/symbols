@@ -21,11 +21,11 @@
 ### ☄️New Christians☄️
 
 Transformations:
-1) drug-making activities
-2) dead bodies
-3) Christian candles
-4) opioid/fentanyl
-5) alcohol
+1) drug-making activities (public health issues)
+2) dead bodies (public health issues)
+3) Christian candles (public health issues)
+4) opioid/fentanyl (pain killer > comfort > safety > pleasure)
+5) alcohol (causes you a cognitive decline)
 
 ### 🚨Old Christians🚨
 Christians in the South of the United States (the last indigenous
