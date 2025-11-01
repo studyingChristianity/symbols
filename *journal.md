@@ -72,6 +72,7 @@ Seriousness continues. Sleepers and paperworks are being
 delivered.
 
 ナルシ族: Discussing their strategies moving forward. Running away.
+
 Non-ナルシ族: The deliverables are being delivered.
 
 # Tue, 10/28/2025
@@ -99,10 +100,10 @@ DAY 8 -LAST DAY- OF AFTER-NO-KINGS-PARADE MEETINGS/PARTIES
 
 DAY 7 OF AFTER-NO-KINGS-PARADE MEETINGS/PARTIES
 
-The documentations are being filed
+The documentations are being filed<br/>
 De-coupling discussions begin > Relocations
 
-ナルシ族: 💡Enlightenment💡
+ナルシ族: 💡Enlightenment💡<br/>
 Non-ナルシ族: Stays indoor mostly
 
 # Fri,  10/24/2025
@@ -111,21 +112,21 @@ DAY 6 OF AFTER-NO-KINGS-PARADE MEETINGS/PARTIES
 
 人がたくさん外に出ている
 
-Non-ナルシ族: Documenting
+Non-ナルシ族: Documenting<br/>
 ナルシ族: 手下が動く
 
 # Thu,  10/23/2025
 
 DAY 5 OF AFTER-NO-KINGS-PARADE MEETINGS/PARTIES
 
-Non-ナルシ族: Busy
+Non-ナルシ族: Busy<br/>
 ナルシ族: Paranoid
 
 # Wed,  10/22/2025
 
 DAY 4 OF AFTER-NO-KINGS-PARADE MEETINGS/PARTIES
 
-ナルシ族の勢力: 強
+ナルシ族の勢力: 強<br/>
 Non-ナルシ族: Do not interfere with the ナルシ族.
 
 # Tue, 10/21/2025
@@ -152,13 +153,13 @@ No Kings protests nationwide.
 
 ### Missionary Launch Period:
 
-*Phase 1: Preparation
+*Phase 1: Preparation<br/>
  NOTE: 10/18/2025 No Kings protests ➡️ Through 10/26/2025 Meetings/parties ➡️ Go home
  
- Phase 2: Transformations - Set 1
+ Phase 2: Transformations - Set 1<br/>
  NOTE: <1975 sinners ➡️ Midgets ➡️ Marry
 
- Phase 3: Transformations - Set 2
+ Phase 3: Transformations - Set 2<br/>
  NOTE: ≈1975-≈1985 sinners ➡️ Gay ➡️ Marry
 
  Phase 4: Criminals get arrested.
