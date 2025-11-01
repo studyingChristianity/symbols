@@ -24,7 +24,7 @@ Transformations:
 1) drug-making activities (public health issues)
 2) dead bodies (public health issues)
 3) Christian candles (public health issues)
-4) opioid/fentanyl (pain killer > comfort > safety > pleasure)
+4) opioid/fentanyl (pain killer > comfort > safety > pleasure > Missionary)
 5) alcohol (causes you a cognitive decline)
 
 ### 🚨Old Christians🚨
