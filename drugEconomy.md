@@ -1,3 +1,11 @@
+[The Transitional/Gray Drug Market](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#please-tell-me-as-much-as-possible-about-the-drug-economy-with-tables-where-that-would-be-most-efficient)
+
+[tell me how drug making activities are related to public health issues.](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#tell-me-how-drug-making-activities-are-related-to-public-health-issues)
+
+[https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md](https://github.com/studyingChristianity/symbols/blob/main/drugEconomy.md#the-transitionalgray-drug-market)
+
+---
+
 # please tell me as much as possible about the drug economy, with tables where that would be most efficient
 
 That’s a big and fascinating topic — and it depends on *which* aspect you want to focus on. The term **“drug economy”** can refer to a few different overlapping systems:
