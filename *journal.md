@@ -15,7 +15,7 @@
 
 ### 🚨Illega drug sales🚨
 
-- Illicit resale of prescription drugs
+- Illicit resale of prescription drugs (Opioid marketing = Make you feel pain via the air)
 - Exploiting regulatory loopholes - Sold online as "not for human consumption" or "for research purposes only"
 
 ### ☄️New Christians☄️
