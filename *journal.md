@@ -12,6 +12,11 @@
 Christians who believe they are gods or who believe in a god
 = ナルシ族
 
+Illega drug sales:
+
+- Illicit resale of prescription drugs
+- Exploiting regulatory loopholes - Sold online as "not for human consumption" or "for research purposes only"
+
 ### ☄️New Christians☄️
 
 Transformations:
