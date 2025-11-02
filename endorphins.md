@@ -1,3 +1,7 @@
+> [!NOTE]
+> * I call the Opioid receptors "the endorphins receptors."<br/>
+> * Naturally-produced endorphins (by breathing, eating, having sex, laughing, and exercising) bind to the endorphins receptors. Opioid also bind to the endorphins receptors. When it does, our body makes us not want the naturally-produced endorphins. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
+
 # How opioids work
 
 * Opioids (like morphine, oxycodone, heroin, or fentanyl) bind to **opioid receptors in the brain, spinal cord, and other areas of the body**.
