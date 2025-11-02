@@ -1,8 +1,3 @@
-[The endocannabinoid system: Essential and mysterious](https://github.com/studyingChristianity/symbols/blob/main/thc.md)
-
-[History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#history-of-thc)
-
----
 # Endocannabinoid system (ECS)
 ECS egulates and controls:
 1. learning and memory
