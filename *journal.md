@@ -13,6 +13,82 @@ https://www.msn.com/en-us/news/world/nigeria-responds-to-trump-s-warning-of-chri
 > ナルシ族 = Those who believe they are gods or who believe in a god<br/>
 > NOTE: The majoirity of ナルシ族 are Christians
 
+## The U.S. Christianity's Regional Overview
+
+> [!CAUTION]
+> * Christians are the *majority* in every U.S. region except perhaps the most secular parts of the West Coast and certain large cities (like Seattle, San Francisco, Portland, and parts of New England).
+> * The **South** remains the most strongly Christian region by far.
+
+#### **1. The South — Overwhelming Christian Majority**
+
+* **Examples:** Texas, Alabama, Mississippi, Georgia, Tennessee, South Carolina, Arkansas, Louisiana.
+* **Christian share:** 70–85%.
+* **Dominant traditions:** Evangelical Protestant, Baptist, Pentecostal.
+* Often called the “Bible Belt.” Christianity remains deeply ingrained culturally and politically.
+
+| Feature           | Evangelical Protestants | Mainline Protestants    | Catholics                             |
+| ----------------- | ----------------------- | ----------------------- | ------------------------------------- |
+| **View of Bible** | Literal / inerrant      | Symbolic / historical   | Authoritative, interpreted via Church |
+| **Salvation**     | Personal conversion     | Faith + moral living    | Faith + sacraments                    |
+| **Worship style** | Contemporary, **emotional** | Traditional, liturgical | Highly liturgical (Mass)              |
+| **Politics**      | Often conservative      | Often moderate/liberal  | Mixed                                 |
+| **Cultural role** | “Countercultural”       | “Institutional”         | “Sacramental”                         |
+
+| **Key Contrast**          | **Evangelical**                               | **Mainline**                                          |
+| ------------------------- | --------------------------------------------- | ----------------------------------------------------- |
+| **Faith expression**      | Personal and experiential                     | Communal and institutional                            |
+| **Approach to Scripture** | Literal and authoritative                     | Contextual and interpretive                           |
+| **Goal of church**        | Conversion and discipleship                   | Service and justice                                   |
+| **Cultural stance**       | Countercultural                               | Culturally engaged                                    |
+| **Trend in NYC**          | Growing via immigrant energy and megachurches | Declining but influential in education and civic life |
+
+---
+
+#### **2. The Midwest — Solid Christian Majority**
+
+* **Examples:** Ohio, Indiana, Iowa, Kansas, Nebraska, Missouri, South Dakota.
+* **Christian share:** 65–75%.
+* **Dominant traditions:** Mainline Protestant (Lutheran, Methodist, Presbyterian) and Catholic (especially in the Upper Midwest).
+* Christianity is still the social norm, though urban areas (e.g., Chicago, Minneapolis) are more religiously diverse.
+
+---
+
+#### **3. The Northeast — Pluralistic but Still Christian Majority in Some States**
+
+* **Examples:** Pennsylvania, upstate New York, parts of New England.
+* **Christian share:** 55–65%.
+* **Dominant traditions:** Catholicism (especially among Irish, Italian, and Hispanic populations).
+* Major cities (New York, Boston, Providence) have large secular, Jewish, and other-faith populations, so Christianity is less dominant there.
+
+---
+
+#### **4. The West — Mixed, Often Pluralistic or Minority Christian**
+
+* **Examples:** California, Oregon, Washington, Colorado, Nevada.
+* **Christian share:** 45–60% (lower in coastal cities).
+* **Dominant traditions:** Catholic and Evangelical Protestant in some regions; Mormon (LDS) in Utah and parts of Idaho.
+* Large urban areas (San Francisco, Seattle, Los Angeles) have many unaffiliated or non-Christian residents.
+
+---
+
+#### **5. The Mountain West — Mixed but Still Largely Christian**
+
+* **Utah and Idaho:** strong **Latter-day Saint (Mormon)** Christian-majority states.
+* **Montana, Wyoming:** largely Protestant and Catholic populations.
+
+---
+
+### **Summary Table**
+
+| Region        | Approx. % Christian | Religious Notes                     |
+| ------------- | ------------------- | ----------------------------------- |
+| South         | 70–85%              | Evangelical & Baptist strongholds   |
+| Midwest       | 65–75%              | Protestant & Catholic mix           |
+| Northeast     | 55–65%              | Catholic-heavy; rising unaffiliated |
+| West          | 45–60%              | Diverse, secular trend strongest    |
+| Mountain West | 60–80%              | LDS concentration in Utah/Idaho     |
+
+
 ### 🚨Illega drug sales🚨
 
 - Illicit resale of prescription drugs (<ins>Opioid marketing = Make you feel pain via the air</ins>)
