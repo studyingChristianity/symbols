@@ -1,8 +1,36 @@
-[What is THC?](https://github.com/studyingChristianity/symbols/blob/main/thc.md)
+[The endocannabinoid system: Essential and mysterious](https://github.com/studyingChristianity/symbols/blob/main/thc.md)
 
-[History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)
+[What is THC?](https://github.com/studyingChristianity/symbols/edit/main/thc.md#what-is-thc)
+
+[History of THC]([https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)](https://github.com/studyingChristianity/symbols/edit/main/thc.md#history-of-thc)
 
 ---
+# The endocannabinoid system: Essential and mysterious
+
+[https://www.health.harvard.edu/blog/the-endocannabinoid-system-essential-and-mysterious-202108112569](https://www.health.harvard.edu/blog/the-endocannabinoid-system-essential-and-mysterious-202108112569)
+
+Many of us have heard of some of the transmitter systems within our bodies, such as the sympathetic nervous system, which gives us our fight-or-flight response. Fewer have heard of the more recently discovered endocannabinoid system (ECS), which is amazing when you consider that the ECS is critical for almost every aspect of our moment-to-moment functioning. The ECS regulates and controls many of our most critical bodily functions such as learning and memory, emotional processing, sleep, temperature control, pain control, inflammatory and immune responses, and eating. The ECS is currently at the center of renewed international research and drug development.
+
+### What is the ECS?
+The ECS comprises a vast network of chemical signals and cellular receptors that are densely packed throughout our brains and bodies. The "cannabinoid" receptors in the brain — the CB1 receptors — outnumber many of the other receptor types on the brain. They act like traffic cops to control the levels and activity of most of the other neurotransmitters. This is how they regulate things: by immediate feedback, turning up or down the activity of whichever system needs to be adjusted, whether that is hunger, temperature, or alertness.
+
+To stimulate these receptors, our bodies produce molecules called endocannabinoids, which have a structural similarity to molecules in the cannabis plant. The first endocannabinoid that was discovered was named anandamide after the Sanskrit word ananda for bliss. All of us have tiny cannabis-like molecules floating around in our brains. The cannabis plant, which humans have been using for about 5,000 years, essentially works its effect by hijacking this ancient cellular machinery.
+
+A second type of cannabinoid receptor, the CB2 receptor, exists mostly in our immune tissues and is critical to helping control our immune functioning, and it plays a role in modulating intestinal inflammation, contraction, and pain in inflammatory bowel conditions. CB2 receptors are particularly exciting targets of drug development because they don't cause the high associated with cannabis that stimulating the CB1 receptors does (which is often an unwanted side effect).
+
+### The ECS's role in learning and memory
+We know that the ECS plays a critical role in learning and memory due to several lines of research. The most obvious observation is that one of the main side effects of high dosages of recreational cannabis use is the temporary disruption of short-term memory. Memory returns to normal with abstinence. There have also been some sophisticated studies of how humans acutely respond to the administration of THC (the active ingredient in cannabis) and the ways in which this alters both their ability to memorize things in the short term and the patterns observed on their functional brain imaging.
+
+According to the popular writer Michael Pollan in his bestselling book The Botany of Desire, cannabis is one of the plants that humans have cultivated, or co-evolved with, for thousands of years. This is in part, Pollan writes, because the act of forgetting plays a valuable role in the ability of our brains to function without being overloaded with data from our senses that we are continually bombarded with. Pollan hypothesizes that if we didn't forget, we wouldn't function, and cannabis helps us do this. The role that the ECS plays in forgetting also opens up opportunities for the treatment of PTSD, a condition in which there are unpleasant, intrusive memories that people can't help but remember, and that cause a whole syndrome of troublesome and dangerous symptoms related to the pathological remembering.
+
+### The ECS's role in hunger and fine-tuning weight-loss medications
+The cautionary tale of the drug rimonabant, a drug that blocks the CB1 receptor, is an interesting example of the central role the ECS plays in so many crucial functions. It was developed as an anti-obesity drug. The thinking was that the ECS controls hunger. We know this because, among other lines of evidence, cannabis gives you "the munchies," so if you block the CB1 receptor it should cause weight loss. Rimonabant did cause weight loss, quite successfully. But, because the ECS also regulates mood, it had to be withdrawn from the market on an emergency basis because people who were taking it were becoming suicidal. However, we can imagine a case, as we better understand the complexities of the ECS, where we may be able to create a weight-loss medication that acts on those cannabinoid receptors that affect weight loss, but that doesn't act on those receptors that control mood.
+
+### Exploration of the ECS may lead to new drug discoveries
+Study of the ECS was initially focused on attempts to understand (and demonize) an illegal drug, but new research has since flourished into a far more broad-based exploration into what is an astoundingly intricate and far-reaching system by which our bodies learn, feel, motivate, and keep themselves in balance. We are truly at the dawn of an age of discovery of the ECS and the development of new medicines that may help alleviate some of the cruelest diseases that people (and animals) suffer from. I am incredibly excited to see what discoveries await us as we continue to untangle the mysteries of the ECS.
+
+---
+# What is THC?
 
 ### 🌿 **Ancient History: Cannabis Use Long Before THC Was Known**
 
@@ -80,6 +108,7 @@ Would you like me to include a short **chemical history** (how scientists figure
 Perfect — here’s a focused timeline on the **cultural and legal history of THC and cannabis**, showing how attitudes, laws, and social meaning evolved around it:
 
 ---
+# History of THC
 
 ## 🌿 **Pre-20th Century: Medicine, Ritual, and Colonial Exchange**
 
