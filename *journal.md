@@ -1,16 +1,3 @@
-***************************************************************
-**🌟STRENGTHEN INNER-BODY MUSCLES🌟**
----------------------------------------------------------------
-🚶🏻‍♀️ Easy-walking for 10 minutes after lunch, 20 minutes after dinner
-
-**🌟INTAKE FOODS THAT LOWER CHOLESTEROL🌟**
----------------------------------------------------------------
-✅ Apples ✅ Mangos ✅ Raspberries
-✅ Oats & Almond milk
-✅ Yogurt & Cookie butter
-
-***************************************************************
-
 # Sat, 11/1/2025
 
 #### <ins>ナルシ族 = Those who believe they are gods or who believe in a god</ins>
