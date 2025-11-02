@@ -5,6 +5,34 @@
 [History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#history-of-thc)
 
 ---
+# Endocannabinoid system (ECS)
+* Regulates 1) mood, 2) pain, 3) appetite, 4) sleep, 5) memory, and more
+
+### 🏃‍♀️ **Activities**
+* Aerobic exercise (e.g., running, cycling, swimming)
+* Yoga and tai chi
+* Dancing or rhythmic movement
+* Meditation
+* Deep breathing
+* Social bonding, laughter, and sex
+
+### 🍫 **Foods**
+* Omega-3 fatty acids
+* Dark chocolate
+* Truffles (especially black truffles)
+* Black pepper, clove*, Echinacea, rosemary*
+
+### 😴 **Sleep**
+
+### ☀️ **Sunlight**
+
+---
+
+Would you like me to explain **how** these activities boost endocannabinoids on a biochemical level (e.g., how exercise raises anandamide in the brain)?
+
+
+
+---
 # The endocannabinoid system: Essential and mysterious
 
 [https://www.health.harvard.edu/blog/the-endocannabinoid-system-essential-and-mysterious-202108112569](https://www.health.harvard.edu/blog/the-endocannabinoid-system-essential-and-mysterious-202108112569)
