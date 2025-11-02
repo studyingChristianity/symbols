@@ -1,9 +1,5 @@
 # Sat, 11/1/2025
 
-#### <ins>ナルシ族 = Those who believe they are gods or who believe in a god</ins>
-
-#### <ins>NOTE: The majoirity of ナルシ族 are Christians</ins>
-
 ### 📻 News: Christians are killed in Nigeria
 https://www.msn.com/en-us/news/world/nigeria-responds-to-trump-s-warning-of-christian-mass-slaughter/ar-AA1PBOwV?ocid=msedgdhp&pc=U531&cvid=6906b13b9d3040a18db7e55672c34edd&ei=12
 
@@ -13,12 +9,16 @@ https://www.msn.com/en-us/news/world/nigeria-responds-to-trump-s-warning-of-chri
 
 <p>Why it Matters: Nigeria is Africa’s heavyweight with a population of around 240 million people and has long rejected suggestions by some U.S. evangelical Christian groups and politicians that killings of Christians are a deliberate campaign of extermination rather than being part of ongoing violence by Islamist radicals and bandits who also routinely kill Muslims in the West African nation.</p>
 
+> [!IMPORTANT]
+> ナルシ族 = Those who believe they are gods or who believe in a god<br/>
+> NOTE: The majoirity of ナルシ族 are Christians
+
 ### 🚨Illega drug sales🚨
 
 - Illicit resale of prescription drugs (<ins>Opioid marketing = Make you feel pain via the air</ins>)
 - Exploiting regulatory loopholes - Sold online as "not for human consumption" or "for research purposes only"
 
-### ☄️New Christians☄️
+### ☄️New School Christians☄️
 
 Transformations:
 1) 🗡️drug-making activities (public health issues)
@@ -30,7 +30,7 @@ Transformations:
 7) 🧪cosmetic procedures & aesthetic interventions
 8) 🧪psychological & mindset work
 
-### 🚨Old Christians🚨
+### 🚨Old School Christians🚨
 Christians in the South of the United States (the last indigenous
 people in the world) openly discriminated and killed the minorities.
 They are still keeping dead bodies in their residence.
