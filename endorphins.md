@@ -1,5 +1,4 @@
 > [!NOTE]
-> * I call the Opioid receptors "the endorphins receptors."<br/>
 > * Naturally-produced endorphins (by breathing, eating, having sex, laughing, and exercising) bind to the endorphins receptors (also called Opioid receptors). Opioid also bind to the endorphins receptors. When it does, our body makes us not want the naturally-produced endorphins. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
 > * All Opioid users, excluding for the medical use, take Opioid for pleasure (including Fentanyl).
 
