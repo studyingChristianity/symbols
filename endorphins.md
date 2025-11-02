@@ -1,6 +1,16 @@
 > [!NOTE]
-> * Naturally-produced endorphins (by breathing, eating, having sex, laughing, and exercising) bind to the endorphins receptors (also called Opioid receptors). Opioid also bind to the endorphins receptors. When it does, our body makes us not want the naturally-produced endorphins. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
-> * All Opioid users, excluding for the medical use, take Opioid for pleasure (including Fentanyl).
+> * Naturally-produced endorphins (by breathing, eating, having sex, laughing, and exercising) bind to the endorphins receptors (also called Opioid receptors).
+> * Opioid (all synthetic forms of opium, including the prescription Opioid) also bind to the endorphins receptors. When it does, <ins>our body makes us not want the naturally-produced endorphins</ins>. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
+> * All Opioid users, excluding for the medical use, take Opioid for pleasure.
+
+# Fentanyl Epidemic 
+The fentanyl epidemic refers to the sharp rise in overdose deaths caused by the widespread availability of illicitly manufactured fentanyl, a synthetic opioid up to 50 times stronger than heroin. Originally used for severe pain management, fentanyl entered the illegal drug market in the 2010s, often mixed into heroin, cocaine, or counterfeit pills without users’ knowledge. This has led to a public health crisis across North America, with fentanyl now responsible for the majority of opioid-related fatalities.
+
+Mexican criminal groups (and transnational trafficking networks) synthesize or obtain fentanyl and then smuggle it into the U.S. by land, air, mail and parcel routes, often mixing it into heroin, cocaine or pressing it into counterfeit prescription pills.
+
+From there it’s distributed through: cartel and wholesale networks supply regional distributors, darknet vendors and local street dealers, and social-media contacts and online marketplaces.
+
+Public-health responses focus on testing (fentanyl test strips), widespread naloxone access (treatment for opioid use disorder) and harm-reduction services.
 
 # Opium
 
