@@ -1,12 +1,17 @@
 [The endocannabinoid system: Essential and mysterious](https://github.com/studyingChristianity/symbols/blob/main/thc.md)
 
-[What is THC?](https://github.com/studyingChristianity/symbols/blob/main/thc.md#what-is-thc)
-
 [History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#history-of-thc)
 
 ---
 # Endocannabinoid system (ECS)
-* Regulates 1) mood, 2) pain, 3) appetite, 4) sleep, 5) memory, and more
+ECS egulates and controls:
+1. learning and memory
+2. emotional processing
+3. sleep
+4. temperature control
+5. pain control
+6. inflammatory and immune responses
+7. eating. 
 
 ### 🏃‍♀️ **Activities**
 * Aerobic exercise (e.g., running, cycling, swimming)
@@ -25,12 +30,6 @@
 ### 😴 **Sleep**
 
 ### ☀️ **Sunlight**
-
----
-
-Would you like me to explain **how** these activities boost endocannabinoids on a biochemical level (e.g., how exercise raises anandamide in the brain)?
-
-
 
 ---
 # The endocannabinoid system: Essential and mysterious
@@ -56,84 +55,6 @@ The cautionary tale of the drug rimonabant, a drug that blocks the CB1 receptor,
 
 ### Exploration of the ECS may lead to new drug discoveries
 Study of the ECS was initially focused on attempts to understand (and demonize) an illegal drug, but new research has since flourished into a far more broad-based exploration into what is an astoundingly intricate and far-reaching system by which our bodies learn, feel, motivate, and keep themselves in balance. We are truly at the dawn of an age of discovery of the ECS and the development of new medicines that may help alleviate some of the cruelest diseases that people (and animals) suffer from. I am incredibly excited to see what discoveries await us as we continue to untangle the mysteries of the ECS.
-
----
-# What is THC?
-
-### 🌿 **Ancient History: Cannabis Use Long Before THC Was Known**
-
-* **~5000–3000 BCE – Early Cultivation:**
-  Cannabis was first cultivated in **China and Central Asia** for fiber (hemp), seeds, and medicinal use.
-  Ancient Chinese texts (like the *Pen Ts’ao Ching*, ca. 2700 BCE) mention cannabis as a medicine for pain, rheumatism, and other ailments.
-
-* **2000–1000 BCE – Spread to India and the Middle East:**
-  Cannabis reached **India**, where it was used in spiritual rituals and as *bhang*, a psychoactive drink.
-  In the Middle East, it became known for its intoxicating effects — early recognition of what we now attribute to THC.
-
-* **Classical to Medieval Periods:**
-  Ancient Greeks, Romans, and later Islamic physicians noted cannabis’s medicinal and psychoactive properties. However, no one yet understood *why* it had those effects.
-
----
-
-### 🔬 **1800s–1930s: The Birth of Cannabis Science**
-
-* **19th Century:**
-  Western medicine began to adopt cannabis tinctures and extracts for pain relief, insomnia, and appetite stimulation.
-
-* **1899:**
-  Chemists began to isolate some of cannabis’s chemical constituents (though not yet THC).
-
-* **1930s:**
-  Cannabis became increasingly restricted — especially in the U.S., with the **Marihuana Tax Act of 1937** — long before its active components were scientifically understood.
-
----
-
-### ⚗️ **1960s: Discovery of THC**
-
-* **1964 – The Breakthrough:**
-  Israeli chemist **Dr. Raphael Mechoulam**, along with **Yechiel Gaoni** at the Hebrew University of Jerusalem, successfully **isolated and synthesized Δ9-tetrahydrocannabinol (THC)**.
-  This discovery pinpointed THC as the main compound responsible for cannabis’s psychoactive effects.
-
-* **1960s–1970s:**
-  Mechoulam’s team also identified other cannabinoids (like CBD) and mapped how THC interacts with the brain.
-  At the same time, cannabis use became central to counterculture movements, linking THC with social and political change.
-
----
-
-### 🧠 **1980s–1990s: Understanding How THC Works**
-
-* **1988:**
-  Researchers discovered the **CB1 receptor** — a receptor in the brain that THC binds to — explaining its effects on mood, memory, and perception.
-
-* **1990–1992:**
-  The **endocannabinoid system** was identified, showing that the human body naturally produces similar compounds (like anandamide).
-  This transformed THC research from fringe science into mainstream neurobiology.
-
----
-
-### ⚖️ **2000s–Today: Legal and Medical Evolution**
-
-* **2000s:**
-  Growing evidence of THC’s medical uses (pain, nausea, appetite loss) led to legal medical cannabis programs worldwide.
-
-* **2010s–2020s:**
-  A wave of **legalization and decriminalization** swept across many countries and U.S. states.
-  Synthetic and semi-synthetic THC analogs (like Δ8-THC and THC-O) also emerged.
-  Research continues into THC’s therapeutic benefits and risks, as well as its interaction with other cannabinoids and terpenes.
-
----
-
-### 🧬 **Today:**
-
-THC is one of over 100 cannabinoids found in cannabis.
-It remains both a **cultural symbol** and a **scientific focus**, bridging botany, neuroscience, and medicine — with ongoing debates about its regulation, health impacts, and future uses.
-
----
-
-Would you like me to include a short **chemical history** (how scientists figured out THC’s structure and synthesis), or focus more on **cultural/legal milestones**?
-
-
-Perfect — here’s a focused timeline on the **cultural and legal history of THC and cannabis**, showing how attitudes, laws, and social meaning evolved around it:
 
 ---
 # History of THC
