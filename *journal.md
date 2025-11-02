@@ -17,6 +17,9 @@
 
 #### <ins>NOTE: The majoirity of ナルシ族 are Christians</ins>
 
+### 📻 News: Christians are killed in Nigeria
+https://www.msn.com/en-us/news/world/nigeria-responds-to-trump-s-warning-of-christian-mass-slaughter/ar-AA1PBOwV?ocid=msedgdhp&pc=U531&cvid=6906b13b9d3040a18db7e55672c34edd&ei=12
+
 ### 🚨Illega drug sales🚨
 
 - Illicit resale of prescription drugs (<ins>Opioid marketing = Make you feel pain via the air</ins>)
