@@ -20,6 +20,12 @@
 ### 📻 News: Christians are killed in Nigeria
 https://www.msn.com/en-us/news/world/nigeria-responds-to-trump-s-warning-of-christian-mass-slaughter/ar-AA1PBOwV?ocid=msedgdhp&pc=U531&cvid=6906b13b9d3040a18db7e55672c34edd&ei=12
 
+<p>Nigeria said it was committed to tackling violent extremism, but dismissed any suggestion of genocide in Africa’s most populous nation after U.S. President Donald Trump said thousands of Christians were being killed in a “mass slaughter” by radical Islamists and Christianity faces an existential threat there.</p>
+
+<p>“For the avoidance of any doubt, and out of respect for all the victims and survivors around the world of this unique and appalling crime against humanity, let the record show that there is no genocide, now or ever, in Nigeria,” Yusuf Maitama Tuggar, Minister of Foreign Affairs, said in a message to Newsweek.</p>
+
+<p>Why it Matters: Nigeria is Africa’s heavyweight with a population of around 240 million people and has long rejected suggestions by some U.S. evangelical Christian groups and politicians that killings of Christians are a deliberate campaign of extermination rather than being part of ongoing violence by Islamist radicals and bandits who also routinely kill Muslims in the West African nation.</p>
+
 ### 🚨Illega drug sales🚨
 
 - Illicit resale of prescription drugs (<ins>Opioid marketing = Make you feel pain via the air</ins>)
