@@ -1,67 +1,3 @@
-Great question — let’s break this down clearly.
-
-The **endocannabinoid system (ECS)** is a network of **endocannabinoids**, **receptors** (mainly CB₁ and CB₂), and **enzymes** that helps regulate many body functions: mood, sleep, appetite, pain, inflammation, memory, and more.
-
-A healthy ECS maintains **homeostasis**, meaning it keeps body systems in balance.
-Disruption (or **ECS imbalance / dysfunction**) happens when this system can’t regulate properly — too much or too little signaling between its components.
-
----
-
-### 🔄 How ECS balance can get disrupted
-
-#### 1. **Endocannabinoid Deficiency or Excess**
-
-* **Deficiency:** Not enough endocannabinoids (like anandamide or 2-AG) are produced or they’re broken down too quickly.
-
-  * Can lead to problems like anxiety, pain sensitivity, or migraine.
-* **Excess:** Overproduction of endocannabinoids can lead to receptor desensitization — your body “tunes out” the signals.
-
-#### 2. **Receptor Dysregulation**
-
-* **CB₁ or CB₂ receptors** may become **overactive** or **underactive**.
-
-  * Chronic cannabis use, for example, can downregulate CB₁ receptors temporarily.
-  * Inflammation or immune disorders can alter CB₂ receptor activity.
-
-#### 3. **Enzyme Imbalance**
-
-* The enzymes **FAAH** (breaks down anandamide) and **MAGL** (breaks down 2-AG) can become overactive or underactive.
-
-  * If they’re too active → low endocannabinoid levels.
-  * If underactive → too much signaling.
-
-#### 4. **Chronic Stress**
-
-* Prolonged stress changes how the ECS functions — it can suppress endocannabinoid production and receptor sensitivity, worsening anxiety and stress responses.
-
-#### 5. **Poor Diet and Lifestyle**
-
-* Lack of omega-3 fatty acids (needed to make endocannabinoids).
-* Poor sleep, inactivity, and chronic inflammation all reduce ECS efficiency.
-
-#### 6. **Environmental Toxins & Inflammation**
-
-* Persistent inflammation, toxins, or gut dysbiosis can disrupt ECS tone and receptor expression.
-
----
-
-### 🧠 In short:
-
-ECS imbalance = **too little or too much signaling** due to changes in **endocannabinoid levels, receptor activity, enzyme function, or environmental stressors**.
-This imbalance is linked to various conditions — pain syndromes, anxiety, IBS, migraine, depression, and inflammatory diseases.
-
----
-
-Would you like me to show how **specific habits (diet, sleep, stress, cannabinoids, etc.)** can *restore* ECS balance next?
-
-
-
-
-
-
-
-
-
 # Endocannabinoid system (ECS)
 > ## 📌 ECS regulates and controls:
 > 1. learning and memory
@@ -90,11 +26,13 @@ Would you like me to show how **specific habits (diet, sleep, stress, cannabinoi
 
 ### ☀️ **Sunlight**
 
+---
 ### ⚡ Factors that disrupt/dysregulate the Endocanobinoid System
 * Chronic stress
 * Poor diet and lifestyle (ex. deficiency in omega-3 fatty acids, processed foods, alcohol, a lack of sleep)
 * Environmental toxins
 * Substance use: alcohol and opioids
+---
 
 > [!NOTE]
 > Some people's ECS are naturally under- or over-responsive to factors that disrupt or dysregulate the endocannabinoid system.
