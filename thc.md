@@ -2,7 +2,7 @@
 
 [What is THC?](https://github.com/studyingChristianity/symbols/edit/main/thc.md#what-is-thc)
 
-[History of THC]([https://github.com/studyingChristianity/symbols/blob/main/thc.md#-pre-20th-century-medicine-ritual-and-colonial-exchange)](https://github.com/studyingChristianity/symbols/edit/main/thc.md#history-of-thc)
+[History of THC](https://github.com/studyingChristianity/symbols/edit/main/thc.md#history-of-thc)
 
 ---
 # The endocannabinoid system: Essential and mysterious
