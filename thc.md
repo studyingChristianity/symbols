@@ -1,8 +1,8 @@
 [The endocannabinoid system: Essential and mysterious](https://github.com/studyingChristianity/symbols/blob/main/thc.md)
 
-[What is THC?](https://github.com/studyingChristianity/symbols/edit/main/thc.md#what-is-thc)
+[What is THC?](https://github.com/studyingChristianity/symbols/blob/main/thc.md#what-is-thc)
 
-[History of THC](https://github.com/studyingChristianity/symbols/edit/main/thc.md#history-of-thc)
+[History of THC](https://github.com/studyingChristianity/symbols/blob/main/thc.md#history-of-thc)
 
 ---
 # The endocannabinoid system: Essential and mysterious
