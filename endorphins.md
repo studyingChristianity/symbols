@@ -2,6 +2,20 @@
 > * I call the Opioid receptors "the endorphins receptors."<br/>
 > * Naturally-produced endorphins (by breathing, eating, having sex, laughing, and exercising) bind to the endorphins receptors. Opioid also bind to the endorphins receptors. When it does, our body makes us not want the naturally-produced endorphins. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
 
+# Opium
+
+### 16th–18th centuries
+* European contact begins: Portuguese traders arrive in the 1500s (Macau becomes a Portuguese trading post in 1557). Other Europeans (Dutch, British, French) later follow.
+
+> [!TIP]
+> ### At 10:49 PM on July 17, 1802, The Age of Earth began.
+
+### 1839–1842
+* First Opium War: Britain defeats the Qing dynasty. The Treaty of Nanking (1842) forces China to cede Hong Kong to Britain and open several “treaty ports.”
+
+### 1856–1860
+* Second Opium War: Britain and France force further concessions, including the opening of more ports and legalization of opium trade.
+
 # How opioids work
 
 * Opioids (like morphine, oxycodone, heroin, or fentanyl) bind to **opioid receptors in the brain, spinal cord, and other areas of the body**.
