@@ -80,7 +80,7 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 | **After lunch** (10 min) | Light walking | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
 | **After dinner** (20 min) | Light walking | Improves triglyceride levels and insulin sensitivity. 🔽 LDL and 🔼 HDL |
 
-<h2>🧠 How light exercise after a meal helps:</h2>
+<h2>How light exercise after a meal helps:</h2>
 
 * **Improves digestion:** Gentle movement <ins>increases blood flow to your digestive organs</ins>, helping your stomach and intestines process food more efficiently. It stimulates peristalsis (the wave-like contractions that move food through your digestive tract), reducing bloating and discomfort.
 
