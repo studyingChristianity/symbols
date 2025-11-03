@@ -3,6 +3,7 @@
 ### 👁️ Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users.
 
 - [Drug-dealing business](https://professionalsecurity.co.uk/news/news-archive/drug-dealing-business/)
+- [The Journey of Fentanyl through America](https://youtu.be/ZAtjnkC6yvo?si=jHLUrXWvVIh83oCA)
 
 ### 🫆 Why don’t the illegal drug makers get caught, and why don’t their drug-making activities stop?"
 
