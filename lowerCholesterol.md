@@ -11,13 +11,15 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | ➡️ | ?
 
 HDL (high-density lipoprotein) cholesterol helps remove excess cholesterol from the bloodstream and transport it to the liver for excretion or recycling. This process helps protect against plaque buildup in arteries, reducing the risk of heart disease and stroke.
 
+<h3>How to Lower LDL Cholesterol</h3>
+
 | Behavior               | Recommended Action                                                         
 | ---------------------- | -------------------------------------------------------------------------- 
-| **Exercise regularly** (Lowers LDL 5–10%, raises HDL) | ≥150 min/week moderate aerobic (brisk walking, cycling) or 75 min vigorous
+| 👍🏻**Exercise regularly** (Lowers LDL by 5–10%, raises HDL) | ≥150 min/week moderate aerobic (brisk walking, cycling) or 75 min vigorous
 | **Lose excess weight** | Aim for BMI 18.5–24.9 or waist < 40 in (men), < 35 in (women)
-| **Quit smoking** (Raises HDL, improves LDL particle quality)       | Use nicotine replacement or counseling if needed
+| **Quit smoking** (Raises HDL by 5-15%, improves LDL particle quality )       | Smoking makes LDL more harmful (LDL oxidation). Use nicotine replacement or counseling if needed
 | **Reduce stress**      | Try mindfulness, yoga, deep breathing
-| **Sleep well**         | 7–9 h per night
+| 👍🏻**Sleep well**         | 7–9 h per night
 
 
 
