@@ -17,7 +17,7 @@ HDL (high-density lipoprotein) cholesterol helps remove excess cholesterol from 
 
 * ➡️**Exercise regularly** (Lowers LDL by 5–10%)
 * **Lose excess weight**
-* ➡️**Quit smoking** (Improves LDL particle quality )
+* ➡️**Quit smoking** (Improves LDL particle quality)
 * ➡️**Reduce stress**
 * 👍🏻**Sleep well**
 
@@ -93,3 +93,6 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * **Reduces fatigue and sluggishness:** Movement helps counteract the common “post-meal slump” by <ins>increasing circulation and oxygen delivery to tissues and the brain</ins>.
 
 * **Improves mood:** Light physical activity <ins>triggers the release of endorphins and serotonin, improving mood and reducing stress</ins>.
+
+<h1>3. Quitting cigarettes: Nov 2, 2025 ➡️</h1>
+
