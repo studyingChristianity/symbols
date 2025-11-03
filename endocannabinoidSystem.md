@@ -39,7 +39,7 @@
 
 ### 🧸 THC Products
 * Temporarily reduce the number of active CB1 receptors.
-* When THC is intaken, the body (that naturally prodeuces cannabinoids) decreases production of these natural endocannabinoids. When the THC level drops, there's a temporary deficit of the endocannabinoid signaling (low mood, emotional flatness, decreased motivation, sleep or appetite changes, heightened stress or irritability). The signaling rebounds in a few weeks/months.
+* When THC is intaken, the body (that naturally prodeuces cannabinoids) decreases production of these natural endocannabinoids. <ins>When the THC level drops, there's a temporary deficit of the endocannabinoid signaling (low mood, emotional flatness, decreased motivation, sleep or appetite changes, heightened stress or irritability). The signaling rebounds in a few weeks/months.</ins>
 * Alter the dopamine system (central to: pleasure, learning, and motivation)
 
 > [!NOTE]
