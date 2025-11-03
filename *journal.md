@@ -1,3 +1,9 @@
+# Sun, 11/2/2025
+
+ナルシ族 keeps working toward their missionaries.
+
+Non-ナルシ族 keeps working on their transformations/renewals.
+
 # Sat, 11/1/2025
 
 ### 📻 News: Christians are killed in Nigeria
