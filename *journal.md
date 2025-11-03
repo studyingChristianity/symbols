@@ -4,6 +4,7 @@ Gods' race is still ongoing.
 
 ### 👁️ Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users.
 
+- [Trump Directs New Attack on Alleged Drug Smugglers in Caribbean](https://www.newsweek.com/trump-directs-new-attack-on-alleged-drug-smugglers-in-caribbean-10977800)
 - [Drug-dealing business](https://professionalsecurity.co.uk/news/news-archive/drug-dealing-business/)
 - [The Journey of Fentanyl through America](https://youtu.be/ZAtjnkC6yvo?si=jHLUrXWvVIh83oCA)
 
