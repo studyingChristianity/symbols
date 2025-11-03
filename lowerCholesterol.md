@@ -1,5 +1,5 @@
 
-🌟 | 👍🏻 | 9/17/2025  | ➡️diet changes | 10/23/2025 | ➡️exercise & stop smoking | 11/14/2025
+🌟 | 👍🏻 | 9/17/2025  | ➡️diet changes | 10/23/2025 | ➡️exercise | 11/14/2025
 -- | -- | -- | -- | -- | -- | --
 Cholesterol, total | 👍🏻 < 200 mg/dL | 207  | 🔽 | 204 | ➡️ | ?
 HDL Cholesterol | 👍🏻 >= 50 mg/dL | 47 | 🔼 | 👍🏻53 | ➡️ | ?
@@ -93,6 +93,3 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * **Reduces fatigue and sluggishness:** Movement helps counteract the common “post-meal slump” by <ins>increasing circulation and oxygen delivery to tissues and the brain</ins>.
 
 * **Improves mood:** Light physical activity <ins>triggers the release of endorphins and serotonin, improving mood and reducing stress</ins>.
-
-<h1>3. Quitting cigarettes: Nov 2, 2025 ➡️</h1>
-
