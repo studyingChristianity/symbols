@@ -11,19 +11,20 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | ➡️ | ?
 
 HDL (high-density lipoprotein) cholesterol helps remove excess cholesterol from the bloodstream and transport it to the liver for excretion or recycling. This process helps protect against plaque buildup in arteries, reducing the risk of heart disease and stroke.
 
-<h3>How to Lower LDL Cholesterol</h3>
+---
 
-| Behavior               | Recommended Action                                                         
-| ---------------------- | -------------------------------------------------------------------------- 
-| 👍🏻**Exercise regularly** (Lowers LDL by 5–10%, raises HDL) | ≥150 min/week moderate aerobic (brisk walking, cycling) or 75 min vigorous
-| **Lose excess weight** | Aim for BMI 18.5–24.9 or waist < 40 in (men), < 35 in (women)
-| **Quit smoking** (Raises HDL by 5-15%, improves LDL particle quality )       | Smoking makes LDL more harmful (LDL oxidation). Use nicotine replacement or counseling if needed
-| **Reduce stress**      | Try mindfulness, yoga, deep breathing
-| 👍🏻**Sleep well**         | 7–9 h per night
+<h3>How to Lower LDL Cholesterol (These also increase HDL Cholesterol)</h3>
 
+* 👍🏻**Exercise regularly** (Lowers LDL by 5–10%)
+* **Lose excess weight**
+* **Quit smoking** (Improves LDL particle quality )
+* **Reduce stress**
+* 👍🏻**Sleep well**
 
+---
 
 <h3>Triglycerides</h3>
+
 Triglycerides are a type of fat that store unused calories and provide energy for the body between meals. High levels of triglycerides can contribute to hardening of the arteries and increase the risk of heart disease and pancreatitis.
 <br/><br/>
 High blood levels of triglycerides may be caused by overweight/obesity, a diet very high in carbohydrates, physical inactivity, cigarette smoking, and too much alcohol intake. A person may reduce their blood level of triglycerides by controlling their weight, being physically active, not smoking cigarettes, avoiding too much alcohol intake, and limiting their eating and drinking of simple sugars and sugar-sweetened beverages. Some medications may also be helpful to reduce triglyceride levels in the blood.
