@@ -1,7 +1,3 @@
-# Sun, 11/2/2025
-
-
-
 # Sat, 11/1/2025
 
 ### 📻 News: Christians are killed in Nigeria
