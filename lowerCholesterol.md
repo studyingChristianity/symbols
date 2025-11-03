@@ -13,7 +13,7 @@ HDL (high-density lipoprotein) cholesterol helps remove excess cholesterol from 
 
 ---
 
-<h3>How to Lower LDL Cholesterol (These also increase HDL Cholesterol)</h3>
+<h3>How to 🔼 HDL Cholesterol and 🔽 LDL Cholesterol</h3>
 
 * 👍🏻**Exercise regularly** (Lowers LDL by 5–10%)
 * **Lose excess weight**
