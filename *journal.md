@@ -2,7 +2,25 @@
 
 > When people know so much about what the illegal drug makers are doing, why don’t they get caught, and why don’t their drug-making activities stop?"
 
-Big profits, vast resources, and persistent demand make drug production highly attractive and resilient. Producers use decentralized, small-batch labs and quickly adapt methods and chemicals when one route is blocked. Many necessary chemicals have legitimate uses and are bought or diverted through complex international supply chains, making detection difficult. Limited enforcement capacity, corruption, encrypted technology, and legal hurdles further hinder investigations and prosecutions. Effective reduction requires 1) coordinated law enforcement (precursor and financial disruption) combined with 2) public-health measures (for people who use and/or produce the illegal drugs) like treatment, prevention, and economic alternatives.
+- **Drug production is highly attractive and resilient:** Big profits, vast resources, and persistent demand
+- **Drug production is decentralized:** Small-batch labs, quickly adapt methods and chemicals when one route is blocked
+- **The chemicals used have legitimate uses:** Moved through complex international supply chains, making detection difficult
+- **Uncoordinated law enforcement:** Limited capacity, corruption, encrypted technology, and legal hurdles
+
+> Where are the illegal drugs sold and how?
+
+- Music x dancing x alcohol x performances: Clubs, bars, music festivals, after-parties, private clubs
+- Hiding small quantities to avoid detection by security or police: 
+- Online: Dark web
+- Social media, messaging apps, apps, websites, forums: Local sales (centered around an individual)
+- Shipping: Via postal systems (UPS, FedEx, DHL, USPS)
+- Smuggling (large-scale trafficking): Via ports, airports, border crossings
+
+> [!CAUTION]
+> - There are **wholesale** and **retail** sales.
+> - Illegal drug activities **adapt to law enforcement**: encrypted communications, delivery disguises, small-batch shipments
+
+### Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users.
 
 # Sun, 11/2/2025
 
