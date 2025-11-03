@@ -1,6 +1,6 @@
 # Mon, 11/3/2025
 
-Gods' race is still ongoing.
+Gods' race is still ongoing. Technologies v.s. Nature.
 
 ### 👁️ Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users.
 
