@@ -1,3 +1,8 @@
+
+> When people know so much about what the illegal drug makers are doing, why don’t they get caught, and why don’t their drug-making activities stop?"
+
+Big profits, vast resources, and persistent demand make drug production highly attractive and resilient. Producers use decentralized, small-batch labs and quickly adapt methods and chemicals when one route is blocked. Many necessary chemicals have legitimate uses and are bought or diverted through complex international supply chains, making detection difficult. Limited enforcement capacity, corruption, encrypted technology, and legal hurdles further hinder investigations and prosecutions. Effective reduction requires 1) coordinated law enforcement (precursor and financial disruption) combined with 2) public-health measures (for people who use and/or produce the illegal drugs) like treatment, prevention, and economic alternatives.
+
 # Sun, 11/2/2025
 
 ナルシ族 keeps working toward their missionaries.
