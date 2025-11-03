@@ -1,3 +1,4 @@
+# Mon, 11/3/2025
 
 > When people know so much about what the illegal drug makers are doing, why don’t they get caught, and why don’t their drug-making activities stop?"
 
