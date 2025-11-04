@@ -70,4 +70,4 @@ Your body releases endorphins during or after things like:
 ### ⚖️ **4. Connection to opioids**
 
 * Opioid drugs **mimic** endorphins but act more strongly and for longer periods.
-* The brain can become **less responsive to natural endorphins** after frequent opioid use — which contributes to tolerance and dependence.
+* <ins>The brain can become **less responsive to natural endorphins** after frequent opioid use — which contributes to tolerance and dependence.</ins>
