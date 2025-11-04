@@ -1,6 +1,6 @@
 # Mon, 11/3/2025
 
-Gods' race is still ongoing. Technologies v.s. Nature.
+Gods' race is still ongoing. [Technologies, Decentralized] v.s. [Nature, Centralized].
 
 In the end, drug addicts are that way because of their DNAs.
 
