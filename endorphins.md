@@ -15,7 +15,7 @@ Public-health responses focus on testing (fentanyl test strips), widespread nalo
 # Opium
 
 ### 16th–18th centuries
-* European contact begins: Portuguese traders arrive in the 1500s (Macau becomes a Portuguese trading post in 1557). Other Europeans (Dutch, British, French) later follow.
+* Europeans' contact with China begins: Portuguese traders arrive in the 1500s (Macau becomes a Portuguese trading post in 1557). Other Europeans (Dutch, British, French) later follow.
 
 > [!TIP]
 > ### At 10:49 PM on July 17, 1802, The Age of Earth began.
