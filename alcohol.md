@@ -35,6 +35,23 @@ Alcohol became abundant and cheap, <ins>No longer sold by medicine practitionaer
 * Governments started taxing alcohol (major source of revenue).
 * It became **commercialized** as a consumer product like coffee, tea, or tobacco.
 
+> [!NOTE]
+> Diestilattion:
+> * Increases strength (proof) from ~10% to 40% or higher
+> * Removes impurities
+> * Changes flavor
+> * Preserves longer
+> * Makes it more flammable and potent (Distilled alcohol (ethanol) can burn and is dangerous)
+> 
+> | Base ingredient          | Distilled product  | Alcohol % (approx.) |
+> | ------------------------ | ------------------ | ------------------- |
+> | Beer (grain mash)        | Whiskey            | 40–50%              |
+> | Wine (grapes)            | Brandy             | 35–60%              |
+> | Sugarcane juice/molasses | Rum                | 40–75%              |
+> | Potatoes or grains       | Vodka              | 35–50%              |
+> | Rice wine                | Soju / Sake spirit | 20–45%              |
+
+
 ## ⚖️ 4. **19th–20th centuries: Advancement of medical technologies**
 
 * Alcohol was no longer considered a *medicine* in medical science. Instead, it became a **social and recreational consumer product**
