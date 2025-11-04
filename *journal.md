@@ -2,15 +2,17 @@
 
 Gods' race is still ongoing. Technologies v.s. Nature.
 
-### 👁️ Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users.
+In the end, drug addicts are that way because of their DNAs.
 
-- [Trump Directs New Attack on Alleged Drug Smugglers in Caribbean](https://www.newsweek.com/trump-directs-new-attack-on-alleged-drug-smugglers-in-caribbean-10977800)
-- [Drug-dealing business](https://professionalsecurity.co.uk/news/news-archive/drug-dealing-business/)
-- [The Journey of Fentanyl through America](https://youtu.be/ZAtjnkC6yvo?si=jHLUrXWvVIh83oCA)
+### 👁️ Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users
+
+- [Trump Directs New Attack on Alleged Drug Smugglers in Caribbean](https://www.newsweek.com/trump-directs-new-attack-on-alleged-drug-smugglers-in-caribbean-10977800)<br/>(Nov 02, 2025: "At least 64 people have been killed in 15 U.S. attacks on vessels in the southern Caribbean and eastern Pacific since the start of September")
+- [Drug-dealing business](https://professionalsecurity.co.uk/news/news-archive/drug-dealing-business/)<br/>(The drug market and the stolen property market are linked through people, incentives, and informal exchange systems.)
+- [The Journey of Fentanyl through America](https://youtu.be/ZAtjnkC6yvo?si=jHLUrXWvVIh83oCA)<br/>(YouTube video)
 
 ### 🫆 Why don’t the illegal drug makers get caught, and why don’t their drug-making activities stop?"
 
-- **Drug production is highly attractive and resilient:** Big profits, vast resources, and persistent demand
+- **Drug production is highly attractive and resilient:** <ins>Big profits</ins>, vast resources, and persistent demand
 - **Drug production is decentralized:** Small-batch labs, quickly adapt methods and chemicals when one route is blocked
 - **The chemicals used have legitimate uses:** Moved through complex international supply chains, making detection difficult
 - **Uncoordinated law enforcement:** Limited capacity, corruption, encrypted technology, and legal hurdles
