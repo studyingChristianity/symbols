@@ -1,3 +1,9 @@
+# Tue, 11/4/2025: Election day.
+
+ナルシ族 keeps working toward their missionaries. Their kind from other parts of the world come see them.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
 # Mon, 11/3/2025
 
 Gods' race is still ongoing. [Technologies, Decentralized] v.s. [Nature, Centralized].
