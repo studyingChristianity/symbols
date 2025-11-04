@@ -6,7 +6,7 @@ In the end, drug addicts are that way because of their DNAs.
 
 ### 👁️ Enforcement and public-health strategies focus on disrupting networks, not just arresting street-level users
 
-- [Trump Directs New Attack on Alleged Drug Smugglers in Caribbean](https://www.newsweek.com/trump-directs-new-attack-on-alleged-drug-smugglers-in-caribbean-10977800)<br/>(Nov 02, 2025: "At least 64 people have been killed in 15 U.S. attacks on vessels in the southern Caribbean and eastern Pacific since the start of September")
+- [Trump Directs New Attack on Alleged Drug Smugglers in Caribbean](https://www.newsweek.com/trump-directs-new-attack-on-alleged-drug-smugglers-in-caribbean-10977800)<br/>(<ins>Nov 02, 2025: "At least 64 people have been killed in 15 U.S. attacks on vessels in the southern Caribbean and eastern Pacific since the start of September"</ins>)
 - [Drug-dealing business](https://professionalsecurity.co.uk/news/news-archive/drug-dealing-business/)<br/>(The drug market and the stolen property market are linked through people, incentives, and informal exchange systems.)
 - [The Journey of Fentanyl through America](https://youtu.be/ZAtjnkC6yvo?si=jHLUrXWvVIh83oCA)<br/>(YouTube video)
 
