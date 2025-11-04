@@ -1,4 +1,4 @@
-> [!NOTE]
+> [!IMPORTANT]
 > * Naturally-produced endorphins (by breathing, eating, having sex, laughing, and exercising) bind to the endorphins receptors (also called Opioid receptors).
 > * Opioid (all synthetic forms of opium, including the prescription Opioid) also bind to the endorphins receptors. When it does, <ins>our body makes us not want the naturally-produced endorphins</ins>. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
 > * All Opioid users, excluding for the medical use, take Opioid for pleasure.
