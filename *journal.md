@@ -4,6 +4,9 @@ Money laundering is the process of illegally concealing the origin of money obta
 
 United Healthcare is a criminal enterprise.
 
+Brian Thompson, the 50-year-old CEO of UnitedHealthcare, was fatally shot on December 4, 2024, outside the Hilton Midtown hotel in New York City while arriving for a company investor conference. The suspect, 26-year-old Luigi Mangione from Maryland, was later arrested and charged with murder and weapons offenses, with investigators suggesting the attack was driven by anger toward the health-insurance industry rather than a personal motive. Thompson’s death shocked the corporate and healthcare worlds, sparking debates about public frustration with the U.S. insurance system and the safety of high-profile executives.
+
+
 # Tue, 11/4/2025: Election day.
 
 ナルシ族 keeps working toward their missionaries. Their kind from other parts of the world come see them.
