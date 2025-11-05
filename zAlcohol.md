@@ -1,5 +1,9 @@
 > [!NOTE]
-> Alcohol in history: Medicine, Ritual → Social custom → Consumer product
+> * Alcohol in history: Medicine, Ritual → Social custom → Consumer product<br/>
+> * Alcohol is still used in the medical settings today, not for treatment but for:
+>   * Disinfecting/Sterilization (Ex: Hand sanitizers, disinfecting equipments before injections/surgeries)
+>   * In emergencies, ethanol slows the breakdown of toxic alcohols, giving the body more time to remove them safely
+>   * Dissolving active ingredients to make liquid medications, tinctures, and cough syrups
 
 ## 🌡️ 1. **Alcohol as Medicine**
 
