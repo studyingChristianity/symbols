@@ -6,7 +6,9 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ---
 
-### 📝 Sample Tip Submission
+### 📝 An anonymous crime tip was submitted to the San Jose Police Department around Nov 4, 2025 at 10:15 pm on the iPhone app, P3 Tips
+
+https://www.sjpd.org/reporting-crime/submit-crime-tips
 
 **Subject:** Suspicious Activity – Possible Illegal Cannabis Cultivation
 
@@ -14,6 +16,8 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 **Description:**
 I have observed a suspicious activity at this residence over the past few weeks. Specifically, bright lights in the backyard turn on and off at irregular intervals at night, roughly every 10 to 60 seconds. This raises concerns that there may be illegal outdoor cannabis cultivation occurring.
+
+**Attachment**
 
 ---
 
