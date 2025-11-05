@@ -1,5 +1,11 @@
 # Wed, 11/5/2025
 
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+
 Money laundering is the process of illegally concealing the origin of money obtained from illicit activities, such as drug trafficking, corruption, and embezzlement, and converting it into a seemingly legitimate source. In simple terms, it involves taking "dirty money" and making it appear as if it was earned legitimately. This process is often used by criminal enterprises to hide their funds and is subject to various legal offenses designed to prevent and prosecute such activities.
 
 United Healthcare is a criminal enterprise.
