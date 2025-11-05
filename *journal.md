@@ -17,7 +17,7 @@ https://www.sjpd.org/reporting-crime/submit-crime-tips
 **Description:**
 I have observed a suspicious activity at this residence over the past few weeks. Specifically, bright lights in the backyard turn on and off at irregular intervals at night, roughly every 10 to 60 seconds. This raises concerns that there may be illegal outdoor cannabis cultivation occurring.
 
-**Attachment**
+NOTE: A video of the lights turning on and off was attached.
 
 ---
 
