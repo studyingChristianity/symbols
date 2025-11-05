@@ -4,10 +4,30 @@
 
 Non-ナルシ族 keeps working on getting/staying healthy.
 
+---
+
+### 📝 Sample Tip Submission
+
+**Subject:** Suspicious Activity – Possible Illegal Cannabis Cultivation
+
+**Location:** 4869 Englewood Dr, San Jose, CA 95129
+
+**Description of Activity:**
+I have observed suspicious activity at this residence over the past few weeks. Specifically:
+
+* Bright lights in the backyard turn **on and off at irregular intervals** at night, roughly every 10 to 60 seconds.
+* In addition, there have been **strong odors** coming from the property in the past several days.
+
+The combination of irregular lighting and strong odors raises concern that there may be an illegal cannabis cultivation operation.
+
+---
+
 > [!NOTE]
 > I noticed today that:
 > 1) there's a strong smell coming from my neighbor
 > 2) they have lights in the backyard at night (white, irregularly turning on/off every 15, 65, 10, etc. seconds)
+
+---
 
 ## Growing Cannabis in California
 
