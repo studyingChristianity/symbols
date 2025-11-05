@@ -12,13 +12,8 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 **Location:** 4869 Englewood Dr, San Jose, CA 95129
 
-**Description of Activity:**
-I have observed suspicious activity at this residence over the past few weeks. Specifically:
-
-* Bright lights in the backyard turn **on and off at irregular intervals** at night, roughly every 10 to 60 seconds.
-* In addition, there have been **strong odors** coming from the property in the past several days.
-
-The irregular lighting at night raises a concern that there may be an illegal cannabis cultivation.
+**Description:**
+I have observed suspicious activity at this residence over the past few weeks. Specifically, bright lights in the backyard turn on and off at irregular intervals at night, roughly every 10 to 60 seconds. It raises a concern that there may be an illegal cannabis cultivation happening outdoor.
 
 ---
 
