@@ -4,6 +4,7 @@
 >   * Disinfecting/Sterilization (Ex: Hand sanitizers, disinfecting equipments before injections/surgeries)
 >   * In emergencies, ethanol slows the breakdown of toxic alcohols, giving the body more time to remove them safely
 >   * Dissolving active ingredients to make liquid medications, tinctures, and cough syrups
+> * All Alcohol users, excluding for the medical use, take Alcohol for pleasure.
 
 ## 🌡️ 1. **Alcohol as Medicine**
 
