@@ -4,6 +4,45 @@
 
 Non-ナルシ族 keeps working on getting/staying healthy.
 
+> [!NOTE]
+> I noticed today that:
+> 1) there's a strong smell coming from my neighbor
+> 2) they have lights in the backyard at night (white, irregularly turning on/off every 15, 65, 10, etc. seconds)
+
+## Growing Cannabis in California
+
+“The cultivation of cannabis outdoors is prohibited within the City of San Jose.” - The San Jose Municipal Code, Chapter 6.88.430 D
+
+In some cases, people use powerful grow lights to cultivate marijuana illegally. Indicators might include:
+
+* <ins>Very bright light visible at odd hours (especially at night)</ins>
+* Curtains always closed or covered windows
+* Unusual smells (strong, skunky odor)
+* Humming or buzzing sounds from fans or ventilation equipment
+
+### ✅ What’s Legal
+
+* **Age:** You must be **21 or older**.
+* **Number of plants:** You can grow **up to six (6) cannabis plants per household**, **not per person**.
+* **Location:** Plants must be **grown at your private residence** — either indoors or outdoors, **in a secure and enclosed area**.
+* **Visibility:** The plants **cannot be visible to the public** (for example, from a street, sidewalk, or neighboring yard).
+* **Security:** They must be **locked or otherwise secured** to prevent access by minors or others.
+
+### ⚠️ Local Rules
+
+Cities and counties can add their own restrictions — for example:
+
+* Some allow only **indoor grows**.
+* Others require permits or **ban outdoor cultivation entirely**.
+  So, it’s important to check **your local city or county ordinances** (e.g., Los Angeles, San Diego, Sacramento, etc.) because enforcement and rules differ widely.
+
+### 🚫 What’s Illegal
+
+* Growing **more than six plants**.
+* Selling cannabis without a state license.
+* Growing in a location where **it’s visible to the public**.
+* Allowing minors access to the plants.
+
 # Mon, 11/3/2025
 
 Gods' race is still ongoing. [Technologies, Decentralized] v.s. [Nature, Centralized].
