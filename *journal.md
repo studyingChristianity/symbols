@@ -1,5 +1,12 @@
 # Wed, 11/5/2025
 
+4 D's of mental illness:
+
+- Deviance: Behavior that is significantly different from societal norms.
+- Distress: Emotional pain or suffering experienced by the individual.
+- Dysfunction: Impairment in daily functioning or the ability to perform normal activities.
+- Danger: Risk of harm to oneself or others.
+
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
 
 Non-ナルシ族 keeps working on getting/staying healthy.
