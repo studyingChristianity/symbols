@@ -31,7 +31,8 @@
 * Chronic stress
 * Poor diet and lifestyle (ex. deficiency in omega-3 fatty acids, processed foods, alcohol, a lack of sleep)
 * Environmental toxins
-* Substance use: alcohol and opioids
+* Substance use: alcohol and opioids - Both are central nervous system depressants, and their combined effects can severely impair the ECS functions and increase the risk of overdose.
+
 ---
 
 > [!NOTE]
