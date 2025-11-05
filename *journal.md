@@ -11,7 +11,15 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ## Growing Cannabis in California
 
-“The cultivation of cannabis outdoors is prohibited within the City of San Jose.” - The San Jose Municipal Code, Chapter 6.88.430 D
+> [!IMPORTANT]
+> **“The cultivation of cannabis outdoors is prohibited within the City of San Jose.” according to the San Jose Municipal Code, Chapter 6.88.430 D.**<br/>
+> If you live in San Jose, California, and you suspect your neighbor may be illegally growing cannabis (for example, growing outdoors or operating a large, unlicensed grow), you have several proper and confidential ways to report it — depending on the situation.
+> #### 🚨 San Jose Police Department (SJPD) – Non-Emergency Line
+> Use this if you suspect illegal activity, but it’s not an immediate emergency (e.g., no fire, violence, or active danger).<br/>
+> 📞 (408) 277-8900 – SJPD non-emergency number<br/>
+> You can also file a tip online at:<br/>
+> 👉 https://www.sjpd.org/report-a-crime<br/>
+> If you ever believe there’s immediate danger (fire hazard, electrical issues, or threats), call 911.
 
 In some cases, people use powerful grow lights to cultivate marijuana illegally. Indicators might include:
 
