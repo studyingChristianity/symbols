@@ -55,8 +55,15 @@ Alcohol became abundant and cheap, <ins>No longer sold by medicine practitionaer
 ## ⚖️ 4. **19th–20th centuries: Advancement of medical technologies**
 
 * Alcohol was no longer considered a *medicine* in medical science. Instead, it became a **social and recreational consumer product**
-* Doctors replaced alcohol with **safer and more effective drugs** (antiseptics, anesthetics, antibiotics).
+* <ins>Doctors replaced alcohol with **safer and more effective drugs** (antiseptics, anesthetics, antibiotics - See NOTE below).</ins>
 * Alcohol’s **negative health and addiction risks** became clearer.
+
+NOTE:<br/>
+**Antiseptics** are substances that reduce or stop the growth of harmful microorganisms on the skin and mucous membranes, helping to prevent infections. They are commonly used in medical settings and can be found in various forms, such as liquids, creams, and wipes.
+
+**Anesthetics** are medications used to induce a loss of sensation or consciousness during medical procedures, and they can be classified into several types, including local and general anesthetics.
+
+**Antibiotics** are powerful medications used to treat bacterial infections by either killing bacteria or inhibiting their growth.
 
 > [!NOTE]
 > - Most regulate it through **age limits, taxes, and health warnings**, balancing freedom and public health.
