@@ -18,7 +18,7 @@ I have observed suspicious activity at this residence over the past few weeks. S
 * Bright lights in the backyard turn **on and off at irregular intervals** at night, roughly every 10 to 60 seconds.
 * In addition, there have been **strong odors** coming from the property in the past several days.
 
-The combination of irregular lighting and strong odors raises a concern that there may be an illegal cannabis cultivation.
+The irregular lighting at night raises a concern that there may be an illegal cannabis cultivation.
 
 ---
 
