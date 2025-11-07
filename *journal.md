@@ -1,5 +1,28 @@
 # Fri, 11/7/1015
 
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+## Anonymous Tip #2
+
+**Subject:** Anonymous Tip Regarding Possible Fraudulent Activities at Local Convenience Store
+
+**Message:**
+
+I would like to report some activities that I believe may be suspicious or potentially fraudulent at a neighborhood convenience store.
+
+On two separate occasions:
+
+My credit card was unexpectedly declined at the store, even though it works normally elsewhere.
+
+During another visit, the cashier gave me incorrect change, which raised further concern about possible dishonest or fraudulent activity.
+
+I am not making any accusations, but I thought it was important to bring these incidents to your attention in case there is a larger issue occurring at this location.
+
+---
+
 ## [Trump has accused boat crews of being narco-terrorists. The truth, AP found, is more nuanced](https://apnews.com/article/trump-venezuela-boat-strikes-drugs-cocaine-trafficking-95b54a3a5efec74f12f82396a79617ea)
 
 ![boatImage](https://dims.apnews.com/dims4/default/bf0ebee/2147483647/strip/true/crop/1920x1280+0+0/resize/1440x960!/format/webp/quality/90/?url=https%3A%2F%2Fassets.apnews.com%2F3a%2Fc8%2F51725d01f1f4fb7e644b320dc6e9%2F7dc2219f338a47599dfdccaa65d2c76d)
