@@ -1,3 +1,9 @@
+# Fri, 11/7/1015
+
+## [Trump has accused boat crews of being narco-terrorists. The truth, AP found, is more nuanced](https://apnews.com/article/trump-venezuela-boat-strikes-drugs-cocaine-trafficking-95b54a3a5efec74f12f82396a79617ea)
+
+![boatImage](https://dims.apnews.com/dims4/default/bf0ebee/2147483647/strip/true/crop/1920x1280+0+0/resize/1440x960!/format/webp/quality/90/?url=https%3A%2F%2Fassets.apnews.com%2F3a%2Fc8%2F51725d01f1f4fb7e644b320dc6e9%2F7dc2219f338a47599dfdccaa65d2c76d)
+
 # Thu, 11/6/2025: WW3 Day 5
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
