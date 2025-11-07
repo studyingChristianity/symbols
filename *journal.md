@@ -1,3 +1,15 @@
+# Thu, 11/6/2025: WW3 Day 5
+
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+
+## Illegal drugs x Cults x Scams x Money laundering ↔️ Narcissism
+
+### The era of search is over. It's the era of questions.
+
 # Wed, 11/5/2025
 
 4 D's of mental illness:
