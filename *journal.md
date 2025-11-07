@@ -10,6 +10,8 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ### The era of search is over. It's the era of questions.
 
+#### Perimenopause 更年期 > menopause 閉経
+
 # Wed, 11/5/2025
 
 4 D's of mental illness:
