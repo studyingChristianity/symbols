@@ -68,6 +68,7 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * Green tea
 * Korean coffee
 * Fiber supplement
+* Diet Pepsi
 </p>
 
 <h1>2. Exercising: Oct 25, 2025 ➡️</h1>
