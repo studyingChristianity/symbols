@@ -18,7 +18,7 @@ HDL (high-density lipoprotein) cholesterol helps remove excess cholesterol from 
 * ➡️**Exercise regularly** (Lowers LDL by 5–10%)
 * **Lose excess weight**
 * **Quit smoking** (Improves LDL particle quality)
-* **Reduce stress**
+* 👍🏻**Reduce stress**
 * 👍🏻**Sleep well**
 
 ---
