@@ -3,6 +3,7 @@
 ✅ Apples ✅ Mangos ✅ Raspberries
 ✅ Oats & Almond milk
 ✅ Yogurt & Cookie butter
+✅ Tofu
 
 ---
 Date | 🚿Shower or 🚀ZIIP | 🪥 AM | 🚶🏻‍♀️ Lunch | 🚶🏻‍♀️ Dinner
