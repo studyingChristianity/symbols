@@ -1,5 +1,16 @@
 # Sat, 11/8/1015
 
+ナルシ族 (= Illegal系) keeps working toward their missionaries.
+
+* They are scamming each other, and others.
+* They are staying with their supporters.
+* They are switching their consumables.
+* They are becoming do-gooders.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+
 Palpitations = n. 動機
 
 Urinary incontinence　= n. the involuntary leakage of urine
