@@ -1,3 +1,9 @@
+# Sat, 11/8/1015
+
+Palpitations = n. 動機
+
+Urinary incontinence　= n. the involuntary leakage of urine
+
 # Fri, 11/7/1015
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
