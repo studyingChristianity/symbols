@@ -7,13 +7,13 @@
 * They are switching their consumables.
 * They are becoming do-gooders.
 
-Non-ナルシ族 keeps working on getting/staying healthy.
+Non-ナルシ族 (= Legal系) keeps working on getting/staying healthy.
 
 ---
 
 Palpitations = n. 動機
 
-Urinary incontinence　= n. the involuntary leakage of urine
+Urinary incontinence = n. the involuntary leakage of urine
 
 # Fri, 11/7/1015
 
