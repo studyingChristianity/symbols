@@ -8,11 +8,18 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ## The Dark Triad
 
-Machiavellianism – marked by manipulation, deceit, and a focus on self-interest and personal gain.<br/>
+<ins>**Machiavellianism = The Hitlers**</ins> (≈2025 onward)<br/>
+Marked by manipulation, deceit, and a focus on self-interest and personal gain.<br/>
+
 ⏫<br/>
-**Narcissism: ** Characterized by grandiosity, entitlement, and a need for admiration.<br/>
+
+<ins>**Narcissism = Mental Criminals**</ins> (≈2010 onward)<br/>
+Characterized by grandiosity, entitlement, and a need for admiration.<br/>
+
 ⏫<br/>
-**Psychopathy: Physical criminals.** Associated with callousness (= insensitive and cruel disregard for others), lack of empathy, impulsivity, and antisocial behaviors.
+
+**Psychopathy = Physical Criminals**<br/>
+Associated with callousness (= insensitive and cruel disregard for others), lack of empathy, impulsivity, and antisocial behaviors.
 
 ---
 
