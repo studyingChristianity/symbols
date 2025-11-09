@@ -6,20 +6,31 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ---
 
-## The Dark Triad
+## The Dark Triad (The Lizards' Path)
 
-<ins>**Machiavellianism = The Hitlers**</ins> (≈2025 onward)<br/>
-Marked by manipulation, deceit, and a focus on self-interest and personal gain.<br/>
-
-⏫<br/>
-
-<ins>**Narcissism = Mental Criminals**</ins> (≈2010 onward)<br/>
-Characterized by grandiosity, entitlement, and a need for admiration.<br/>
+<ins>**Machiavellianism = The Hitlers**</ins> (≈ 40's)<br/>
+Machiavellians manipulate strategically. They pursue control through calculated manipulation.<br/>
 
 ⏫<br/>
 
-**Psychopathy = Physical Criminals**<br/>
-Associated with callousness (= insensitive and cruel disregard for others), lack of empathy, impulsivity, and antisocial behaviors.
+<ins>**Narcissism = Mental Criminals**</ins> (≈ 30's)<br/>
+Narcissists manipulate for admiration. They crave admiration and validation.<br/>
+
+⏫<br/>
+
+<ins>**Psychopathy = Physical Criminals**</ins> (= 20's)<br/>
+Psychopaths manipulate or harm for pleasure or dominance, often without guilt. They act on impulse and seek domination or excitement.
+
+| **Aspect**                 | **Psychopathy**                                        | **Narcissism**                                 | **Machiavellianism**                                   |
+| -------------------------- | ------------------------------------------------------ | ---------------------------------------------- | ------------------------------------------------------ |
+| **Core Motivation**        | Thrill-seeking, dominance, and immediate gratification | Admiration, validation, and self-importance    | Power, control, and long-term strategic advantage      |
+| **Emotional Style**        | Emotionally cold, impulsive, lacks fear or empathy     | Emotionally reactive, fragile ego              | Emotionally detached and calculating                   |
+| **Interpersonal Behavior** | Aggressive, reckless, and exploitative                 | Arrogant, attention-seeking, self-promoting    | Manipulative, patient, and strategic                   |
+| **View of Others**         | Sees others as prey or obstacles                       | Sees others as admirers or threats to ego      | Cynical; sees others as tools                          |
+| **Social Tactics**         | Uses intimidation, charm, or violence impulsively      | Uses charm and self-display to gain admiration | Deceptive but controlled; plans manipulation carefully |
+| **Underlying Goal**        | To *dominate* or satisfy impulses without remorse      | To *be admired* and feel superior              | To *win* and maintain control                          |
+| **Self-Control**           | Low — impulsive and thrill-driven                      | Moderate — driven by ego needs                 | High — plans actions strategically                     |
+| **Empathy Level**          | Very low or absent empathy altogether                  | Low emotional empathy, some cognitive empathy  | Low, but cognitively understands others’ emotions      |
 
 ---
 
