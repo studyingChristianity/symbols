@@ -1,4 +1,8 @@
-# Sat, 11/8/1015
+# Sun, 11/9/2025
+
+Loss of identity
+
+# Sat, 11/8/2015
 
 ナルシ族 (= Illegal系) keeps working toward their missionaries.
 
@@ -15,7 +19,7 @@ Palpitations = n. 動機
 
 Urinary incontinence = n. the involuntary leakage of urine
 
-# Fri, 11/7/1015
+# Fri, 11/7/2015
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
 
