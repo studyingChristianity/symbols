@@ -2,6 +2,30 @@
 
 Loss of identity
 
+## How are people changing their identities?
+
+### 1. **Digital Identity**
+
+* **Online personas:** Many people adopt new names, avatars, or even AI-generated faces for privacy or creative expression.
+* **Social media reinvention:** Platforms let people curate or reframe who they are — sometimes drastically — by changing content, communities, and aesthetics.
+* **Virtual worlds and the metaverse:** Avatars in games or VR spaces allow people to explore gender, appearance, and social roles more freely.
+
+### 2. **Social & Cultural Identity**
+
+* **Gender and sexuality:** More people are exploring and affirming gender or sexual identities that align with their inner selves — including through social transition, name/pronoun changes, and sometimes medical steps.
+* **Cultural fluidity:** Globalization and migration have made identity more hybrid — people blend cultural traditions, languages, and aesthetics in new ways.
+* **Political and ideological shifts:** People increasingly adopt or shed political and religious identities based on personal values or social experiences.
+
+### 3. **Legal Identity**
+
+* **Name and gender marker changes:** Many countries now have legal pathways to update documents to match someone’s lived identity.
+* **Nationality or citizenship:** Some change legal identity through immigration, dual citizenship, or new national affiliations.
+
+### 4. **Technological & Biological Frontiers**
+
+* **Biohacking and augmentation:** Some experiment with implants, gene editing, or digital enhancements that alter bodily or cognitive identity.
+* **AI and deepfakes:** Digital tools can convincingly replicate or transform faces and voices, creating questions about what “identity” even means online.
+
 # Sat, 11/8/2015
 
 ナルシ族 (= Illegal系) keeps working toward their missionaries.
