@@ -1,5 +1,21 @@
 # Sun, 11/9/2025
 
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+
+## The Dark Triad
+
+Machiavellianism – marked by manipulation, deceit, and a focus on self-interest and personal gain.<br/>
+⏫<br/>
+**Narcissism: ** Characterized by grandiosity, entitlement, and a need for admiration.<br/>
+⏫<br/>
+**Psychopathy: Physical criminals.** Associated with callousness (= insensitive and cruel disregard for others), lack of empathy, impulsivity, and antisocial behaviors.
+
+---
+
 Loss of identity
 
 ## How are people changing their identities?
