@@ -1,3 +1,8 @@
+# Mon, 11/10/2025
+
+[Genealogy of the Imperial Family](https://www.kunaicho.go.jp/e-about/genealogy/koseizu.html)
+[皇室の構成図](https://www.kunaicho.go.jp/about/kosei/koseizu.html)
+
 # Sun, 11/9/2025
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
