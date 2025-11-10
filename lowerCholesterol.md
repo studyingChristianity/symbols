@@ -1,3 +1,6 @@
+✅ Apples ✅ Mangos ✅ Raspberries ✅ Oats & Almond milk ✅ Yogurt & Cookie butter ✅ Tofu
+
+---
 
 🌟 | 👍🏻 | 9/17/2025  | ➡️diet changes | 10/23/2025 | ➡️exercise | 11/14/2025
 -- | -- | -- | -- | -- | -- | --
