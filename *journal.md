@@ -8,20 +8,20 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ## The Dark Triad (The Lizards' Path)
 
-<ins>**Machiavellianism = The Hitlers**</ins> (≈ 40's)<br/>
+💣<ins>**Machiavellianism = The Hitlers**</ins> (≈ 40's)<br/>
 Machiavellians manipulate strategically. They pursue control through calculated manipulation.<br/>
 
 ⏫<br/>
 
-<ins>**Narcissism = Mental Criminals**</ins> (≈ 30's)<br/>
+🪞<ins>**Narcissism = Mental Criminals**</ins> (≈ 30's)<br/>
 Narcissists manipulate for admiration. They crave admiration and validation.<br/>
 
 ⏫<br/>
 
-<ins>**Psychopathy = Physical Criminals**</ins> (= 20's)<br/>
+🪓<ins>**Psychopathy = Physical Criminals**</ins> (= 20's)<br/>
 Psychopaths manipulate or harm for pleasure or dominance, often without guilt. They act on impulse and seek domination or excitement.
 
-| **Aspect**                 | **Psychopathy**                                        | **Narcissism**                                 | **Machiavellianism**                                   |
+| **Aspect**                 | 🪓**Psychopathy**                                      | 🪞**Narcissism**                              | 💣**Machiavellianism**                                 |
 | -------------------------- | ------------------------------------------------------ | ---------------------------------------------- | ------------------------------------------------------ |
 | **Core Motivation**        | Thrill-seeking, dominance, and immediate gratification | Admiration, validation, and self-importance    | Power, control, and long-term strategic advantage      |
 | **Emotional Style**        | Emotionally cold, impulsive, lacks fear or empathy     | Emotionally reactive, fragile ego              | Emotionally detached and calculating                   |
@@ -33,8 +33,6 @@ Psychopaths manipulate or harm for pleasure or dominance, often without guilt. T
 | **Empathy Level**          | Very low or absent empathy altogether                  | Low emotional empathy, some cognitive empathy  | Low, but cognitively understands others’ emotions      |
 
 ---
-
-Loss of identity
 
 ## How are people changing their identities?
 
