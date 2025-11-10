@@ -5,6 +5,21 @@
 
 両陛下（りょうへいか）= 天皇陛下 + 皇后陛下
 
+🎎 6. Why the Imperial Family system endures
+
+* The modern Kōshitsu (皇室) — the Imperial Family — persists because it embodies:
+* Continuity: a direct lineage said to stretch back over 2,600 years
+* Cultural identity: the emperor as a living link between Japan’s ancient past and present
+* Symbolic unity: a non-political figure representing the Japanese people as a whole
+
+| Period                      | Key development                | Emperor’s role                 |
+| --------------------------- | ------------------------------ | ------------------------------ |
+| Mythic era (~660 BCE)       | Divine ancestor of Amaterasu   | Sacred ruler                   |
+| Nara–Heian (8th–12th c.)    | Centralized state via Ritsuryō | Political and religious leader |
+| Kamakura–Edo (12th–19th c.) | Rise of samurai and shoguns    | Symbolic authority only        |
+| Meiji (1868–1945)           | Modern national monarch        | Sovereign ruler                |
+| Post-1947                   | New constitution               | Symbol of the state            |
+
 # Sun, 11/9/2025
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
