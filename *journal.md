@@ -22,7 +22,7 @@
                           └─ 現在の天皇（系譜はここまで連綿と続く）
 ```
 
-🎎 6. Why the Imperial Family system endures
+🎎 Why the Imperial Family system endures
 
 * The modern Kōshitsu (皇室) — the Imperial Family — persists because it embodies:
 * Continuity: a direct lineage said to stretch back over 2,600 years
