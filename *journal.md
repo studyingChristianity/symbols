@@ -1,7 +1,9 @@
 # Mon, 11/10/2025
 
-[Genealogy of the Imperial Family](https://www.kunaicho.go.jp/e-about/genealogy/koseizu.html)
+[Genealogy of the Imperial Family](https://www.kunaicho.go.jp/e-about/genealogy/koseizu.html) 
 [皇室の構成図](https://www.kunaicho.go.jp/about/kosei/koseizu.html)
+
+両陛下（りょうへいか）= 天皇陛下 + 皇后陛下
 
 # Sun, 11/9/2025
 
