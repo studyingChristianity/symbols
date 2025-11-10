@@ -1,5 +1,11 @@
 # Mon, 11/10/2025
 
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+
 **卑弥呼**は「倭国（日本列島の一部）」を統一した女王で、鬼道（まじないや祭祀）を用いて国（**邪馬台国＝やまたいこく**）を治めていた。
 
 大和政権（**大和国＝やまとのくに**）の支配者たちは、神話・伝承とともに**天皇の祖先**として位置づけられています。
