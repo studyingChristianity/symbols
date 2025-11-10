@@ -28,9 +28,7 @@ Non-ナルシ族 keeps working on getting/staying healthy.
                           └─ 現在の天皇（系譜はここまで連綿と続く）
 ```
 
-### 🎎 Why the Imperial Family system endures
-
-* The modern Kōshitsu (皇室) — the Imperial Family — persists because it embodies:
+### 🎎 The modern Kōshitsu (皇室) — the Imperial Family — persists because it embodies:
 * Continuity: a direct lineage said to stretch back over 2,600 years
 * Cultural identity: the emperor as a living link between Japan’s ancient past and present
 * Symbolic unity: a non-political figure representing the Japanese people as a whole
