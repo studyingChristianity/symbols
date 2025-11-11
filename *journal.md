@@ -6,6 +6,19 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ---
 
+## 🪪 Identity Theft
+
+* A criminal incapacitates a victim and impersonates him/her.
+
+
+## 🆘 Capgras Delusion
+
+* A person with Capgras delusion believes that someone close to them — often a spouse, family member, or friend — has been replaced by an identical-looking impostor.
+
+* For example, they might say, “That’s not really my mother — she just looks like her.”
+
+---
+
 Missionary族: Leave their DNAs. Leave those DNAs.
 
 Non-Missionary族:: Leave their DNAs. Stay with those DNAs.
