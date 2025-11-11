@@ -1,3 +1,19 @@
+# Tue, 11/11/2025
+
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
+
+Non-ナルシ族 keeps working on getting/staying healthy.
+
+---
+
+### Individuals who have left or been removed from the British royal family
+
+🪂 **Edward VIII:** (1936) Voluntary abdication as monarch (i.e., leaving the throne) primarily for love/marriage, with huge constitutional implications.
+
+🪂 **Harry & Meghan:** (2020) Stepped back from senior royal duties to pursue independence, protect their family, and build commercial/philanthropic ventures.
+
+🪂 **Prince Andrew:** (2025) Removed/stripped from public roles and titles due to scandal and associated reputational risk to the monarchy.
+
 # Mon, 11/10/2025
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
