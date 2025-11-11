@@ -6,6 +6,12 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 
 ---
 
+Missionary族: Leave their DNAs. Leave those DNAs.
+
+Non-Missionary族:: Leave their DNAs. Stay with those DNAs.
+
+---
+
 ### Individuals who have left or been removed from the British royal family
 
 🪂 **Edward VIII:** (1936) Voluntary abdication as monarch (i.e., leaving the throne) primarily for love/marriage, with huge constitutional implications.
