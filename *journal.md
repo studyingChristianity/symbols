@@ -1,6 +1,6 @@
 # Tue, 11/11/2025
 
-ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Do-gooder wannabes = Copycats.
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
 
 Non-ナルシ族 keeps working on getting/staying healthy.
 
