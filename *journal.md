@@ -1,8 +1,8 @@
 # Tue, 11/11/2025
 
-ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around.
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 
-Non-ナルシ族 keeps working on getting/staying healthy.
+Non-ナルシ族 keeps working on getting/staying healthy. Leave their DNAs. Stay with those DNAs.
 
 ---
 
@@ -16,12 +16,6 @@ Non-ナルシ族 keeps working on getting/staying healthy.
 * A person with Capgras delusion believes that someone close to them — often a spouse, family member, or friend — has been replaced by an identical-looking impostor.
 
 * For example, they might say, “That’s not really my mother — she just looks like her.”
-
----
-
-Missionary族: Leave their DNAs. Leave those DNAs.
-
-Non-Missionary族:: Leave their DNAs. Stay with those DNAs.
 
 ---
 
