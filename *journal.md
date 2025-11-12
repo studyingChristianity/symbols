@@ -1,3 +1,9 @@
+# Wed, 11/12/2025
+
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+
+Non-ナルシ族 keeps working on getting/staying healthy. Leave their DNAs. Stay with those DNAs.
+
 # Tue, 11/11/2025
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
