@@ -100,12 +100,12 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 <h1>3. Quitting cigarettes</h1>
 
-### Nicotine Lozenge
+### Nicotine Lozenge - 12-week program
 
+* First 6 Weeks: 1 lozenge every 1 to 2 hours. Use at least 9 lozenges per day.
 * Do not eat or drink 15 minutes before using.
 * Do not eat or drink while the logenze is in your mouth.
 * Do not use more than 5 logenzes in 6 hours.
 * Do not use more than 20 lozenges per day.
-* Week 1: 1 lozenge every 1 to 2 hours.
 
 1. 9:52AM
