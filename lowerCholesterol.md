@@ -108,5 +108,4 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * Do not use more than 5 logenzes in 6 hours.
 * Do not use more than 20 lozenges per day.
 
-2. 11:46AM
-1. 9:52AM
+## ✅11:46a ✅9:52a
