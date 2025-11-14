@@ -107,5 +107,3 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * Do not eat or drink while the logenze is in your mouth.
 * Do not use more than 5 logenzes in 6 hours.
 * Do not use more than 20 lozenges per day.
-
-## ✅11:46a ✅9:52a
