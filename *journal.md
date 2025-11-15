@@ -1,3 +1,13 @@
+# Sat, 11/15/2025
+
+ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+
+Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+
+---
+
+[Trump likely to face long military commitment and chaos if he ousts Maduro in Venezuela, experts say](https://www.cnn.com/2025/11/15/politics/trump-maduro-removal-venezuela)
+
 # Fri, 11/14/2025
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
