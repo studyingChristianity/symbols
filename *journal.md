@@ -6,6 +6,8 @@ Non-ナルシ族 keeps working on getting/staying healthy. They are running stin
 
 ---
 
+[Trump has suggested he’s made a decision on Venezuela military operations. Here’s what we know](https://www.cnn.com/2025/11/15/politics/venezuela-trump-military-what-we-know)
+
 [Trump likely to face long military commitment and chaos if he ousts Maduro in Venezuela, experts say](https://www.cnn.com/2025/11/15/politics/trump-maduro-removal-venezuela)
 
 # Fri, 11/14/2025
