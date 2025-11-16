@@ -1,3 +1,31 @@
+# Sun, 11/16/2025
+
+## 💣Machiavellianism
+
+Machiavellians manipulate strategically. They pursue control through calculated manipulation.
+
+![UFO catcher](https://pds.exblog.jp/pds/1/200910/31/80/e0086880_17443572.jpg)
+
+## 🎶ナルシ族 (= The illegals turning legal) keeps working toward their missionaries. They are:
+
+* Scamming each other, and others.
+* Staying with their supporters.
+* Switching their consumables.
+* Becoming do-gooders.
+
+## 🍎4 D's of mental illness:
+
+* **Deviance:** Behavior that is significantly different from societal norms.
+* **Distress:** Emotional pain or suffering experienced by the individual.
+* **Dysfunction:** Impairment in daily functioning or the ability to perform normal activities.
+* **Danger:** Risk of harm to oneself or others.
+
+---
+
+## 🐾Koshitsu:
+
+Their money spend needs to be displayed on the kunaicho website.
+
 # Sat, 11/15/2025
 
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
