@@ -22,9 +22,10 @@ Machiavellians manipulate strategically. They pursue control through calculated 
 
 ---
 
-## 🐾 Koshitsu
+## 🐾 Suggestions to Koshitsu
 
-Their money spend needs to be displayed on the kunaicho website.
+* Their money spend to be displayed on the kunaicho website.
+* They set up cameras at home and start YouTube Live.
 
 # Sat, 11/15/2025
 
