@@ -1,19 +1,19 @@
 # Sun, 11/16/2025
 
-## 💣Machiavellianism
+## 💣 Machiavellianism
 
 Machiavellians manipulate strategically. They pursue control through calculated manipulation.
 
 ![UFO catcher](https://pds.exblog.jp/pds/1/200910/31/80/e0086880_17443572.jpg)
 
-## 🎶ナルシ族 (= The illegals turning legal) keeps working toward their missionaries. They are:
+## 🎶 ナルシ族 (= The illegals turning legal) keeps working toward their missionaries. They are:
 
 * Scamming each other, and others.
 * Staying with their supporters.
 * Switching their consumables.
 * Becoming do-gooders.
 
-## 🍎4 D's of mental illness:
+## 🍎 4 D's of mental illness
 
 * **Deviance:** Behavior that is significantly different from societal norms.
 * **Distress:** Emotional pain or suffering experienced by the individual.
@@ -22,7 +22,7 @@ Machiavellians manipulate strategically. They pursue control through calculated 
 
 ---
 
-## 🐾Koshitsu:
+## 🐾 Koshitsu
 
 Their money spend needs to be displayed on the kunaicho website.
 
