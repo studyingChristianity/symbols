@@ -71,3 +71,13 @@ Your body releases endorphins during or after things like:
 
 * Opioid drugs **mimic** endorphins but act more strongly and for longer periods.
 * <ins>The brain can become **less responsive to natural endorphins** after frequent opioid use — which contributes to tolerance and dependence.</ins>
+
+# Opioid Cessation Medicines
+
+| **Medication** | **Effect / Purpose** | **Main Side Effects** | **Approval Status** | **Typical Duration / Notes** |
+| -- | -- | -- | -- | -- |
+| **Methadone**                           | Reduces withdrawal symptoms and cravings                          | Sedation, constipation        | FDA-approved (via certified opioid treatment programs) | Often long-term; taper possible under supervision         |
+| **Buprenorphine (Suboxone, Sublocade)** | Reduces withdrawal and cravings; safer than full agonists         | Sedation, constipation        | FDA-approved (can be prescribed outpatient)            | Short- or long-term; can taper gradually                  |
+| **Naltrexone**                          | Blocks effects of opioids; prevents “high”                        | Nausea, liver issues          | FDA-approved                                           | Short- or long-term; must start after detox (opioid-free) |
+| **Clonidine** (off-label)               | Reduces withdrawal symptoms (anxiety, sweating, rapid heart rate) | Low blood pressure, dizziness | Off-label                                              | Short-term, typically during detox                        |
+| **Lofexidine**                          | Reduces withdrawal symptoms                                       | Low blood pressure, dizziness | FDA-approved (US)                                      | Short-term, typically during detox                        |
