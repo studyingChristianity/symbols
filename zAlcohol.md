@@ -6,7 +6,7 @@
 >   * Dissolving active ingredients to make liquid medications, tinctures, and cough syrups
 > * All Alcohol users, excluding for the medical use, take Alcohol for pleasure.
 
-## 🌡️ 1. **Alcohol as Medicine**
+## 🌡️ 1. Alcohol as Medicine
 
 In most early societies, alcohol was:
 
@@ -24,7 +24,8 @@ In most early societies, alcohol was:
 | Europe (Medieval–Modern) | Aqua vitae, brandy | Tonic, pain relief          | 1000–1900 CE     |
 | Indigenous Americas      | Fermented drinks   | Ritual, healing             | Ancient–Colonial |
 
-## 🧑‍🤝‍🧑 2. **Medicine → Social Custom**
+
+## 🧑‍🤝‍🧑 2. Medicine → Social Custom
 
 In ancient Greece, medieval Europe, daily drinking of wine or beer became normal, even expected.
 
@@ -32,7 +33,8 @@ In ancient Greece, medieval Europe, daily drinking of wine or beer became normal
 * It helped with anxiety, pain, or hunger in hard times.
 * It could be shared — a symbol of hospitality, community, or celebration.
 
-## 🏭 3. **1700-1800: Industrialization of alcohol**
+
+## 🏭 3. 1700-1800: Industrialization of alcohol
 
 Alcohol became abundant and cheap, <ins>No longer sold by medicine practitionaers</ins>
 
@@ -57,7 +59,7 @@ Alcohol became abundant and cheap, <ins>No longer sold by medicine practitionaer
 > | Rice wine                | Soju / Sake spirit | 20–45%              |
 
 
-## ⚖️ 4. **19th–20th centuries: Advancement of medical technologies**
+## ⚖️ 4. 19th–20th centuries: Advancement of medical technologies
 
 * Alcohol was no longer considered a *medicine* in medical science. Instead, it became a **social and recreational consumer product**
 * <ins>Doctors replaced alcohol with **safer and more effective drugs** (antiseptics, anesthetics, antibiotics - See NOTE below).</ins>
@@ -74,6 +76,7 @@ NOTE:<br/>
 > - Most regulate it through **age limits, taxes, and health warnings**, balancing freedom and public health.
 > - Some countries like Saudi Arabia ban alcohol altogether.
 > - Others like France or Japan integrate it deeply into food and social culture.
+
 
 ## 🍷 5. Fetal Alcohol Spectrum Disorders (FASD)
 
@@ -115,3 +118,16 @@ NOTE:<br/>
 |                                             | Early OT/PT/Speech                | Address delays as early as possible                                      |
 |                                             | Early childhood special education | Structured learning environments for ages 0–5                            |
 
+
+## 💊 7. Alcohol Cessation Medicines
+
+| **Medication** | **Type / Class** | **How It Works** | **Dosage / Form** | **Notes / Side Effects** | **Approval Status** |
+| -- | -- | -- | -- | -- | -- |
+| **Naltrexone** | Opioid receptor antagonist | Reduces alcohol reward & cravings | Oral pill or monthly injection | Nausea, liver concerns; cannot use with opioids | FDA-approved |
+| **Acamprosate** | Neuromodulator | Reduces withdrawal-related anxiety, insomnia, restlessness | Pill, 3x/day | Safe, not habit-forming; caution with kidney problems | FDA-approved |
+| **Disulfiram (Antabuse)** | Aldehyde dehydrogenase inhibitor | Causes unpleasant reaction if alcohol is consumed | Pill, once daily | Effective if highly motivated; serious reaction if drinking | FDA-approved |
+| **Topiramate**            | Anticonvulsant (off-label)              | May reduce alcohol cravings                                | Oral                           | Side effects: cognitive slowing, tingling                   | Off-label               |
+| **Gabapentin**            | Anticonvulsant / nerve pain (off-label) | Reduces cravings and withdrawal symptoms                   | Oral                           | Sedation, dizziness                                         | Off-label               |
+| **Ondansetron**           | 5-HT3 receptor antagonist               | May reduce drinking in certain genetic subgroups           | Oral                           | Nausea, headache                                            | Off-label               |
+| **Varenicline (Chantix)** | Nicotinic receptor partial agonist      | Reduces alcohol cravings                                   | Oral                           | Nausea, sleep changes, vivid dreams                         | Off-label               |
+| **Nalmefene**             | Opioid receptor antagonist              | Reduces alcohol reward                                     | Oral                           | Similar to naltrexone                                       | Approved in EU, not FDA |
