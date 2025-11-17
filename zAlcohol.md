@@ -77,6 +77,10 @@ NOTE:<br/>
 
 ## 🍷 5. Fetal Alcohol Spectrum Disorders (FASD)
 
+* **1973:** Fetal Alcohol Syndrome was first described in a medical paper.
+* **Late 1990s–early 2000s:** Clinicians recognized that alcohol exposure causes a range of effects.
+* **2004:** Fetal Alcohol Spectrum Disorders as an umbrella term was formalized by CDC.
+
 | **Category** | **Symptoms / Features** |
 | -- | -- |
 | **Facial Features** | • Small eye openings (short palpebral fissures)<br>• Smooth/flattened philtrum<br>• Thin upper lip |
@@ -86,7 +90,7 @@ NOTE:<br/>
 | **Organ & Structural Birth Defects** | • Heart defects (e.g., septal defects)<br>• Kidney abnormalities<br>• Bone or limb abnormalities<br>• Hearing problems<br>• Vision problems |
 
 
-### **Treatments for Fetal Alcohol Spectrum Disorders (FASD)**
+## ✏️ 6. Treatments for Fetal Alcohol Spectrum Disorders
 
 | **Category**                                | **Treatment / Support**           | **Purpose / Examples**                                                   |
 | ------------------------------------------- | --------------------------------- | ------------------------------------------------------------------------ |
