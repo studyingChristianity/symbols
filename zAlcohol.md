@@ -84,3 +84,30 @@ NOTE:<br/>
 | **CNS (Central Nervous System) & Brain Function** | • Intellectual disability / low IQ<br>• Learning disabilities<br>• Memory problems<br>• Poor coordination<br>• Attention problems / ADHD-like symptoms<br>• Poor impulse control<br>• Poor judgment<br>• Difficulty with planning, organizing, and problem-solving<br>• Executive functioning deficits |
 | **Behavioral & Social Difficulties** | • Difficulty focusing<br>• Emotional regulation problems<br>• Difficulty understanding consequences<br>• Trouble adapting to change<br>• Social skills challenges |
 | **Organ & Structural Birth Defects** | • Heart defects (e.g., septal defects)<br>• Kidney abnormalities<br>• Bone or limb abnormalities<br>• Hearing problems<br>• Vision problems |
+
+
+### **Treatments for Fetal Alcohol Spectrum Disorders (FASD)**
+
+| **Category**                                | **Treatment / Support**           | **Purpose / Examples**                                                   |
+| ------------------------------------------- | --------------------------------- | ------------------------------------------------------------------------ |
+| **Medical Interventions**                   | Symptom-based medications         | Manage ADHD-like symptoms, anxiety, depression, aggression, sleep issues |
+|                                             | Medical monitoring                | Address heart issues, growth problems, vision/hearing deficits, seizures |
+| **Behavioral & Psychological Therapies**    | Behavioral interventions          | ABA (in some cases), Positive Behavior Support, PCIT                     |
+|                                             | Modified CBT                      | Improve emotion regulation and problem-solving                           |
+|                                             | Social skills training            | Teach social cues, peer interaction skills                               |
+| **Educational Supports**                    | IEPs / 504 plans                  | Tailored learning plans, accommodations in school                        |
+|                                             | Special education services        | Speech therapy, OT, PT provided in school settings                       |
+|                                             | Classroom supports                | Visual supports, structured routines, extra time, hands-on learning      |
+| **Developmental Therapies**                 | Speech-language therapy           | Improve communication and social language skills                         |
+|                                             | Occupational therapy              | Sensory regulation, fine motor skills, daily living skills               |
+|                                             | Physical therapy                  | Motor coordination, strength, balance                                    |
+| **Family & Caregiver Support**              | Parent/caregiver training         | Strategies for routines, self-regulation, environment adjustments        |
+|                                             | Respite services                  | Reduce caregiver burnout                                                 |
+|                                             | Support groups                    | Peer and family support                                                  |
+| **Community & Life Skills Support**         | Vocational training               | Job readiness and skill development                                      |
+|                                             | Supported living services         | Help with housing, daily living, and independence                        |
+|                                             | Case management                   | Coordinate medical, educational, and social services                     |
+| **Early Intervention (for young children)** | Developmental therapy             | Improve early developmental skills                                       |
+|                                             | Early OT/PT/Speech                | Address delays as early as possible                                      |
+|                                             | Early childhood special education | Structured learning environments for ages 0–5                            |
+
