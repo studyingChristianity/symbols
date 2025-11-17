@@ -167,5 +167,15 @@ THC’s legal and cultural journey mirrors broader societal struggles — betwee
 What began as an ancient herb became a political battleground, and is now a regulated, normalized part of modern culture — though the story is still unfolding.
 
 ---
+# 🌿 Lower-Risk THC Use Principles
 
-Would you like me to include a short **global map or chart** showing how THC laws differ by country or U.S. state today?
+| Principle                    | What It Means                                               | Simple Example                                   |
+| ---------------------------- | ----------------------------------------------------------- | ------------------------------------------------ |
+| **Use small amounts**        | Only take as much THC as you need.                          | 1–2 puffs or a low-dose edible.                  |
+| **Avoid daily use**          | Give your body breaks to reduce tolerance and dependence.   | Use on weekends instead of every day.            |
+| **Choose safer methods**     | Smoking is riskier; edibles or vaping are gentler on lungs. | Use a vaporizer or low-dose gummy.               |
+| **Take tolerance breaks**    | Regular time off keeps THC effective and lowers risk.       | A week off every few months.                     |
+| **Know your purpose**        | Be intentional about why you’re using THC.                  | “I’m using this for sleep,” not out of habit.    |
+| **Don’t mix substances**     | Avoid combining THC with alcohol or other drugs.            | Skip THC when drinking.                          |
+| **Use in safe places**       | Choose calm, familiar environments.                         | Use at home or with trusted friends.             |
+| **Check your mental health** | Watch how THC affects your mood and motivation.             | Switch strains or reduce use if you get anxious. |
