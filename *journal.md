@@ -1,5 +1,9 @@
 # Mon, 11/17/2025 🚀 10 More Days ➡️ Thanksgiving Day
 
+[US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
+
+---
+
 ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 
 Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
