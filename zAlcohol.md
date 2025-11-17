@@ -74,3 +74,13 @@ NOTE:<br/>
 > - Most regulate it through **age limits, taxes, and health warnings**, balancing freedom and public health.
 > - Some countries like Saudi Arabia ban alcohol altogether.
 > - Others like France or Japan integrate it deeply into food and social culture.
+
+## 🍷 5. Fetal Alcohol Spectrum Disorders (FASD)
+
+| **Category** | **Symptoms / Features** |
+| -- | -- |
+| **Facial Features** | • Small eye openings (short palpebral fissures)<br>• Smooth/flattened philtrum<br>• Thin upper lip |
+| **Growth & Physical Development** | • Low birth weight<br>• Poor postnatal growth<br>• Short stature |
+| **CNS (Central Nervous System) & Brain Function** | • Intellectual disability / low IQ<br>• Learning disabilities<br>• Memory problems<br>• Poor coordination<br>• Attention problems / ADHD-like symptoms<br>• Poor impulse control<br>• Poor judgment<br>• Difficulty with planning, organizing, and problem-solving<br>• Executive functioning deficits |
+| **Behavioral & Social Difficulties** | • Difficulty focusing<br>• Emotional regulation problems<br>• Difficulty understanding consequences<br>• Trouble adapting to change<br>• Social skills challenges |
+| **Organ & Structural Birth Defects** | • Heart defects (e.g., septal defects)<br>• Kidney abnormalities<br>• Bone or limb abnormalities<br>• Hearing problems<br>• Vision problems |
