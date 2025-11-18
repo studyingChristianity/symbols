@@ -1,24 +1,26 @@
 # Tue, 11/18/2025: 9️⃣ More Days ➡️ Thanksgiving Day
 
-> * In the end, it's about whose DNAs win.
-> * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
-> * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+* In the end, it's about whose DNAs win.
+* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
-> Nicotine Lozenge: Every 2 hr (max 8)
-> 1. 1:22a
-> 2. 3:22a
-> 3. 7:26a
-> 4. 10:02a
-> 5. 
-> 6. 
-> 7. 
-> 8.
+### Nicotine Lozenge: Every 2 hr (max 8)
+num | time
+-- | --
+1 | 1:22a
+2 | 3:22a
+3 | 7:26a
+4 | 10:02a
+5 | 
+6 | 
+7 | 
+8 | 
 
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
 
-> * In the end, it's about whose DNAs win.
-> * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
-> * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+* In the end, it's about whose DNAs win.
+* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
 > [!IMPORTANT]
 > * [US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
