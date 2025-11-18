@@ -4,6 +4,8 @@
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
+> [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
+
 ### Nicotine Lozenge: Every 2 hr (max 8)
 
 Week of (Sun) | Every | Max/Day | Max/Week | Accumulative Max
