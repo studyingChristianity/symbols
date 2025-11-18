@@ -1,35 +1,62 @@
 # Tue, 11/18/2025: 9️⃣ More Days ➡️ Thanksgiving Day
 
-* In the end, it's about whose DNAs win.
-* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
-* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+> * In the end, it's about whose DNAs win.
+> * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+> * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
 > Nicotine Lozenge: Every 2 hr (max 8)
 > 1. 1:22a
 > 2. 3:22a
-> 3. 
+> 3. 7:26a
 > 4. 
 > 5. 
 > 6. 
 > 7. 
 > 8.
 
+## 📘 The Koshitsu Story
+
+| “The Radiant Lineage: Myths of Amaterasu-Ōmikami and the Heavenly Descent” | 「光の皇統：天照大御神と天孫降臨の神話」 |
+| -- | -- |
+| **🌅 1. The Purification of Izanagi: Birth of the Three Noble Children**                                                                                                                                                                   | **🌅 一、伊邪那岐の禊と三貴子の誕生**                                                                       |
+| Long ago, after Izanagi-no-Ōkami returned from Yomi, he felt defiled by the impurity of that realm. Seeking purification, he entered the clear river of Tachibana and performed *misogi*, the sacred washing that would reshape the world. | 遥か昔、伊邪那岐大神は黄泉の国から戻ったのち、その穢れを深く悔い、清めを求めて橘の小戸の阿波岐原の川へ赴き、世界の行く末を左右する「禊」を行った。                    |
+| As he washed his left eye, a dazzling light appeared—Amaterasu-Ōmikami, the radiant Sun Goddess 🌞. From his right eye came Tsukuyomi 🌙, serene Moon God. From his nose burst Susanoo 🌊, the tempestuous Storm God.                      | 左目を洗うと眩い光が立ち昇り、太陽の女神・天照大御神 🌞 が生まれた。右目からは静かに照らす月の神・月読命 🌙 が、鼻を清めたときには荒ぶる海原を司る須佐之男命 🌊 が誕生した。 |
+| Izanagi assigned Amaterasu the High Heavenly Plain, Tsukuyomi the night, and Susanoo the seas.                                                                                                                                             | 伊邪那岐は、天照大御神には高天原を、月読命には夜の国を、須佐之男命には海原を治めるよう任じた。                                              |
+| **⚔️ 2. The Contest Between Amaterasu and Susanoo**                                                                                                                                                                                        | **⚔️ 二、天照大御神と須佐之男命の誓約**                                                                      |
+| Susanoo, driven by grief and disorder, sought to prove his purity. Amaterasu challenged him to a divine contest in which they created deities from each other's sacred objects.                                                            | 悲しみと荒ぶる心に満ちた須佐之男命は、自らの潔白を証明しようとした。そこで天照大御神は、互いの神聖なる持ち物を用いて神々を生み出す誓約を行うことを提案した。               |
+| From Amaterasu’s jewels 💎, Susanoo created five male deities; from Susanoo’s sacred sword ⚔️, Amaterasu created three female deities.                                                                                                     | 天照大御神の勾玉 💎 より須佐之男命は五柱の男神を、須佐之男命の十拳剣 ⚔️ より天照大御神は三柱の女神をお生みになった。                               |
+| Yet Susanoo, emboldened by victory, fell into destructive rage: he ruined rice fields 🌾, defiled sacred halls, and hurled a flayed heavenly horse 🐎 into the weaving hall, causing a maiden’s death.                                     | しかし須佐之男命は勝利に驕り、田畑 🌾 を荒らし、神聖な殿舎を汚し、挙げ句の果てには皮を剥いだ天馬 🐎 を機殿へ投げ入れ、織女を死に至らしめた。                   |
+| **🌑 3. Amaterasu Hides in the Heavenly Rock Cave**                                                                                                                                                                                        | **🌑 三、天岩戸隠れ**                                                                               |
+| Horrified, Amaterasu retreated into the Heavenly Rock Cave, sealing its entrance. Light vanished from the worlds; darkness swallowed all.                                                                                                  | この惨状に心を痛めた天照大御神は、天岩戸へと身を隠し、その扉を固く閉ざした。その瞬間、天地より光が失われ、闇がすべてを覆った。                              |
+| Crops withered, demons roamed freely 👹, and the gods despaired.                                                                                                                                                                           | 五穀は枯れ、邪悪なるもの 👹 が跳梁し、八百万の神々は途方に暮れた。                                                          |
+| The gods gathered beneath a sacred Sakaki tree 🌿 to plan her return.                                                                                                                                                                      | 神々は神聖な榊の木 🌿 の下に集まり、天照大御神を岩戸から導き出す策を練った。                                                     |
+| **✨ 4. The Divine Plan to Bring Back the Sun**                                                                                                                                                                                             | **✨ 四、日の再来を求める神々の策**                                                                         |
+| The gods prepared a flawless mirror 🪞, strings of magatama jewels 💠, and sacred ornaments for the Sakaki tree.                                                                                                                           | 神々は磨き上げられた八咫鏡 🪞、八尺瓊勾玉 💠、そして榊に飾る布や玉を整えた。                                                    |
+| Ame-no-Uzume climbed onto an inverted saké tub and performed a wild, ecstatic dance 💃. The gods laughed and cheered.                                                                                                                      | 天宇受売命は桶を逆さにした台に立ち、愉快で大胆な舞 💃 を踊った。神々は笑いと歓声を上げた。                                              |
+| Curious, Amaterasu opened the door slightly. The gods held the mirror before her. Seeing her own radiance, she stepped forward.                                                                                                            | 不審に思った天照大御神が岩戸を少し開くと、神々は八咫鏡を掲げた。光り輝く自身の姿を見た大御神は前へ踏み出した。                                      |
+| Ame-no-Tajikarao seized the moment, pulled open the stone door 💪🪨, and the Sun Goddess emerged, restoring light 🌞 to heaven and earth.                                                                                                  | その瞬間、天手力男命が岩戸を力強く 💪 開き、天照大御神をお連れした。こうして光 🌞 は再び天地に満ちた。                                      |
+| **🗡️ 5. The Heavenly Regalia and Ninigi’s Descent**                                                                                                                                                                                       | **🗡️ 五、三種の神器と邇邇芸命の天孫降臨**                                                                    |
+| To restore order on earth, Amaterasu chose her grandson, Ninigi-no-Mikoto, to descend from heaven.                                                                                                                                         | 地上界の乱れを正すため、天照大御神は孫である邇邇芸命を天より降し給うた。                                                         |
+| She entrusted him with the Three Imperial Regalia: the mirror 🪞, the jewel 💠, and the sword 🗡️.                                                                                                                                         | その際、大御神は八咫鏡 🪞 ・八尺瓊勾玉 💠 ・草薙剣 🗡️ の三種の神器を授けた。                                                |
+| Guided by Sarutahiko, Ninigi descended through the clouds ☁️ to Takachiho, where the land welcomed him.                                                                                                                                    | 猿田彦命の先導を受け、邇邇芸命は雲海 ☁️ を抜け、九州の高千穂へ天孫降臨した。大地はこれを迎え入れた。                                         |
+| **👑 6. From Ninigi to Emperor Jimmu**                                                                                                                                                                                                     | **👑 六、邇邇芸命から神武天皇へ**                                                                         |
+| Ninigi married Konohanasakuya-hime 🌸, and their descendants eventually gave rise to Emperor Jimmu, first emperor of Japan.                                                                                                                | 邇邇芸命は木花咲耶姫 🌸 を娶り、その子孫はやがて初代天皇・神武天皇へと続く皇統を築いた。                                               |
+| Through this lineage, the Imperial Family is mythologically linked to Amaterasu, and the regalia symbolize this divine bond.                                                                                                               | この系譜により、皇室は天照大御神に連なると伝えられ、三種の神器はその神縁を象徴している。                                                 |
+
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
 
-* In the end, it's about whose DNAs win.
-* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
-* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+> * In the end, it's about whose DNAs win.
+> * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+> * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
-## The Society
-
-* [US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
-
-* regegade = n) a traitor. a person who deserts and betrays an organization, country, or set of principles: "an agent who later turns out to be a renegade"
+> [!IMPORTANT]
+> * [US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
+> * regegade = n) a traitor. a person who deserts and betrays an organization, country, or set of principles: "an agent who later turns out to be a renegade"
 
 > [!NOTE]
-> [Ezra Collective](https://en.wikipedia.org/wiki/Ezra_Collective)
+> * [Ezra Collective](https://en.wikipedia.org/wiki/Ezra_Collective)
 > 
-> Men's midlife crisis is mental. Women's midlife crisis is physical.
+> * Men's midlife crisis is mental. Women's midlife crisis is physical.
 
 # Sun, 11/16/2025
 
