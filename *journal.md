@@ -5,6 +5,16 @@
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
 ### Nicotine Lozenge: Every 2 hr (max 8)
+
+Week of (Sun) | Every | Max/Day | Max/Week | Accumulative Max
+-- | -- | -- | -- | --
+Nov 16 | 2 hr | 8 | 56 | 56
+Nov 23 | 3 hr | 6 | 42 | 98
+Nov 30 | 4 hr | 4 | 28 | 126
+Dec 7 | 4 hr | 4 | 28 | 154
+Dec 14 | 8 hr | 2 | 14 | 168
+Dec 21 | 16 hr | 1 | 7 | 175
+
 num | time
 -- | --
 1 | 1:22a
