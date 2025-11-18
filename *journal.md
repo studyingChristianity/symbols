@@ -1,28 +1,17 @@
 # Tue, 11/18/2025: 9️⃣ More Days ➡️ Thanksgiving Day
 
-## In the end, it's about whose DNAs win.
-
+* In the end, it's about whose DNAs win.
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
----
-
-> Nicotine Lozenge: Every 2 hr | Max 8/Day
-> 
+> Nicotine Lozenge: Every 2 hr (max 8)
 > 1. 1:22a
->
 > 2. 
->
 > 3. 
->
 > 4. 
->
 > 5. 
->
 > 6. 
->
 > 7. 
->
 > 8.
 
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
