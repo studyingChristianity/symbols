@@ -9,7 +9,7 @@
 
 > Nicotine Lozenge: Every 2 hr | Max 8/Day
 > 
-> 1. 
+> 1. 1:22a
 >
 > 2. 
 >
