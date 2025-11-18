@@ -6,7 +6,7 @@
 
 > Nicotine Lozenge: Every 2 hr (max 8)
 > 1. 1:22a
-> 2. 
+> 2. 3:22a
 > 3. 
 > 4. 
 > 5. 
