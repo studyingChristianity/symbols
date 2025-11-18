@@ -99,3 +99,14 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 * **Improves mood:** Light physical activity <ins>triggers the release of endorphins and serotonin, improving mood and reducing stress</ins>.
 
 <h1>3. Quitting cigarettes</h1>
+
+### Arranged Schedule for Nicotine Lozenge
+
+Week of (Sun) | Every | Max/Day | Max/Week | Accumulative Max
+-- | -- | -- | -- | --
+Nov 16 | 2 hr | 8 | 56 | 56
+Nov 23 | 3 hr | 6 | 42 | 98
+Nov 30 | 4 hr | 4 | 28 | 126
+Dec 7 | 4 hr | 4 | 28 | 154
+Dec 14 | 8 hr | 2 | 14 | 168
+Dec 21 | 16 hr | 1 | 7 | 175
