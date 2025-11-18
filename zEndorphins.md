@@ -3,67 +3,59 @@
 > * Opioid (all synthetic forms of opium, including the prescription Opioid) also bind to the endorphins receptors. When it does, <ins>our body makes us not want the naturally-produced endorphins</ins>. In other words, <ins>Opioid makes us not want to breath, eat, have sex, laugh, nor exercise</ins>.
 > * All Opioid users, excluding for the medical use, take Opioid for pleasure.
 
-# **Concise Modern History of the Opioid Crisis (21st Century)**
+# 21st Century Opioid Crisis
 
-### **1. Prescription Opioid Boom (2000s)**
+**1. Prescription Opioid Boom (2000s)**
 
 * Drug companies heavily promoted opioids (e.g., OxyContin) as safe for chronic pain.
 * Prescriptions surged, misuse increased, and overdose deaths rose.
 
-### **2. Heroin Wave (Early 2010s)**
+**2. Heroin Wave (Early 2010s)**
 
 * As prescribing tightened, many dependent users moved to heroin, which was cheaper and widely available.
 
-### **3. Synthetic Opioids / Fentanyl Wave (Mid-2010s → Present)**
+**3. Synthetic Opioids / Fentanyl Wave (Mid-2010s → Present)**
 
 * Illicit fentanyl and analogues entered the drug supply, far more potent than heroin.
 * Overdose deaths spiked sharply and remain at historic highs.
 * Counterfeit pills containing fentanyl further accelerated fatalities.
 
-### **4. Public Health & Legal Responses**
+**4. Public Health & Legal Responses**
 
 * Governments expanded naloxone access, treatment programs, harm-reduction efforts, and sued major pharmaceutical companies.
 * Scientific efforts expanded to treat pain without addictive opioids.
 
----
-
-# **Changes After Some Opioids Moved from Schedule II → Schedule I**
+### **Changes After Some Opioids Moved from Schedule II → Schedule I**
 
 *(Applies mainly to **fentanyl-related analogues**, not medical fentanyl.)*
 
-### **1. Stronger Criminal Penalties**
+**1. Stronger Criminal Penalties**
 
 * Schedule I classification allows harsher charges for possession, trafficking, and manufacturing.
 * Closes loopholes where chemists slightly altered fentanyl’s structure to evade regulation.
 
-### **2. Research Restrictions**
+**2. Research Restrictions**
 
 * Schedule I status makes clinical research harder due to security, licensing, and federal approvals.
 * Some scientists argue this slows development of better treatments or detection methods.
 
-### **3. Public Health Impact**
+**3. Public Health Impact**
 
 * Scheduling reflects recognition that illicit fentanyl is the main driver of overdose deaths.
 * Enforcement increased, but experts warn it must be paired with treatment and harm-reduction.
 
-### **4. Social Effects**
+**4. Social Effects**
 
 * Communities most affected by opioids face increased incarceration alongside persistent addiction risks.
 * Growing acceptance that opioid use disorder is a medical condition, pushing policy toward treatment rather than punishment alone.
 
----
-
-# **Current Situation (Mid-2020s)**
+### **Current Situation (Mid-2020s)**
 
 * Synthetic opioids (especially fentanyl) dominate overdose statistics.
 * Counterfeit pills are a major threat.
 * The crisis continues despite enforcement; treatment access and harm-reduction strategies are increasingly central.
 
-
-
-
-
-# Fentanyl Epidemic 
+### Fentanyl Epidemic 
 The fentanyl epidemic refers to the sharp rise in overdose deaths caused by the widespread availability of illicitly manufactured fentanyl, a synthetic opioid up to 50 times stronger than heroin. Originally used for severe pain management, fentanyl entered the illegal drug market in the 2010s, often mixed into heroin, cocaine, or counterfeit pills without users’ knowledge. This has led to a public health crisis across North America, with fentanyl now responsible for the majority of opioid-related fatalities.
 
 Mexican criminal groups (and transnational trafficking networks) synthesize or obtain fentanyl and then smuggle it into the U.S. by land, air, mail and parcel routes, often mixing it into heroin, cocaine or pressing it into counterfeit prescription pills.
