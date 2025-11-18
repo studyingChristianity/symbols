@@ -7,15 +7,23 @@
 
 ---
 
-### Nicotine Lozenge: Every 2 hr | Max 8/Day
-1. 
-2. 
-3. 
-4. 
-5. 
-6. 
-7. 
-8. 
+> Nicotine Lozenge: Every 2 hr | Max 8/Day
+> 
+> 1. 
+>
+> 2. 
+>
+> 3. 
+>
+> 4. 
+>
+> 5. 
+>
+> 6. 
+>
+> 7. 
+>
+> 8.
 
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
 
@@ -31,11 +39,10 @@
 
 * regegade = n) a traitor. a person who deserts and betrays an organization, country, or set of principles: "an agent who later turns out to be a renegade"
 
-## Notes:
-
-* [Ezra Collective](https://en.wikipedia.org/wiki/Ezra_Collective)
-
-* Men's midlife crisis is mental. Women's midlife crisis is physical.
+> [!NOTE]
+> [Ezra Collective](https://en.wikipedia.org/wiki/Ezra_Collective)
+> 
+> Men's midlife crisis is mental. Women's midlife crisis is physical.
 
 # Sun, 11/16/2025
 
