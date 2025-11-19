@@ -1,18 +1,14 @@
-# 📰 Novermber 2025 🇺🇸🇻🇪 News Articles
+# 📰 🇺🇸🇻🇪 Novermber 2025 News Articles
 
-Wed, 11/19/2025 [A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
-
-Tue, 11/18/2025 [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
-
-Mon, 11/17/2025 [US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
-
-Sat, 11/15/2025 [US aircraft carrier nears Venezuela in flex of American military power](https://apnews.com/article/venezuela-ford-aircraft-carrier-drugs-military-trump-a86ddc6f5f51e12c87cbd9c55978c911)
-
-Sat, 11/15/2025 [Trump has suggested he’s made a decision on Venezuela military operations. Here’s what we know](https://www.cnn.com/2025/11/15/politics/venezuela-trump-military-what-we-know)
-
-Sat, 11/15/2025 [Trump likely to face long military commitment and chaos if he ousts Maduro in Venezuela, experts say](https://www.cnn.com/2025/11/15/politics/trump-maduro-removal-venezuela)
-
-Fri, 11/7/2015 [Trump has accused boat crews of being narco-terrorists. The truth, AP found, is more nuanced](https://apnews.com/article/trump-venezuela-boat-strikes-drugs-cocaine-trafficking-95b54a3a5efec74f12f82396a79617ea)
+Date | Link
+-- | --
+Wed, 11/19/2025 | [A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
+Tue, 11/18/2025 | [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
+Mon, 11/17/2025 | [US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
+Sat, 11/15/2025 | [US aircraft carrier nears Venezuela in flex of American military power](https://apnews.com/article/venezuela-ford-aircraft-carrier-drugs-military-trump-a86ddc6f5f51e12c87cbd9c55978c911)
+Sat, 11/15/2025 | [Trump has suggested he’s made a decision on Venezuela military operations. Here’s what we know](https://www.cnn.com/2025/11/15/politics/venezuela-trump-military-what-we-know)
+Sat, 11/15/2025 | [Trump likely to face long military commitment and chaos if he ousts Maduro in Venezuela, experts say](https://www.cnn.com/2025/11/15/politics/trump-maduro-removal-venezuela)
+Fri, 11/7/2015 | [Trump has accused boat crews of being narco-terrorists. The truth, AP found, is more nuanced](https://apnews.com/article/trump-venezuela-boat-strikes-drugs-cocaine-trafficking-95b54a3a5efec74f12f82396a79617ea)
 
 
 # ✅ **1. FULL 🇺🇸🇻🇪 TIMELINE (1800s–2025)**
