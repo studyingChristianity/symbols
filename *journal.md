@@ -4,6 +4,8 @@
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
+[In 2025, there were TWICE as many ARSON attacks on Christian churches in Europe](https://www.newstarget.com/2025-11-19-twice-arson-attacks-christian-churches-europe-2025.html)
+
 [A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
 
 # Tue, 11/18/2025: 9️⃣ More Days ➡️ Thanksgiving Day
