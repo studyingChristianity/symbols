@@ -1,3 +1,9 @@
+# Wed, 11/19/2025: 8️⃣ More Days ➡️ Thanksgiving Day
+
+* In the end, it's about whose DNAs win.
+* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
+* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+
 # Tue, 11/18/2025: 9️⃣ More Days ➡️ Thanksgiving Day
 
 * In the end, it's about whose DNAs win.
@@ -5,29 +11,6 @@
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
 > [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
-
-### Nicotine Lozenge: Every 2 hr (max 8)
-
-Week of (Sun) | Every | Max/Day | Max/Week | Accumulative Max
--- | -- | -- | -- | --
-Nov 16 | 2 hr | 8 | 56 | 56
-Nov 23 | 3 hr | 6 | 42 | 98
-Nov 30 | 4 hr | 4 | 28 | 126
-Dec 7 | 4 hr | 4 | 28 | 154
-Dec 14 | 8 hr | 2 | 14 | 168
-Dec 21 | 16 hr | 1 | 7 | 175
-
-num | time
--- | --
-1 | 1:22a
-2 | 3:22a
-3 | 7:26a
-4 | 10:02a
-5 | 12:03p
-6 | 2:15p
-7 | 4:15p
-8 | 6:15p
-
 
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
 
