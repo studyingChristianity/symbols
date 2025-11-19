@@ -68,7 +68,7 @@ Non-ナルシ族 keeps working on getting/staying healthy. They are running stin
 
 ## Venezuela-related News
 
-[https://apnews.com/article/disney-abc-youtube-tv-espn-d94c9c0bafc81f95acc4ebb004261caa?utm_campaign=primis&click=primis](https://apnews.com/article/venezuela-ford-aircraft-carrier-drugs-military-trump-a86ddc6f5f51e12c87cbd9c55978c911)
+[US aircraft carrier nears Venezuela in flex of American military power](https://apnews.com/article/venezuela-ford-aircraft-carrier-drugs-military-trump-a86ddc6f5f51e12c87cbd9c55978c911)
 
 [Trump has suggested he’s made a decision on Venezuela military operations. Here’s what we know](https://www.cnn.com/2025/11/15/politics/venezuela-trump-military-what-we-know)
 
