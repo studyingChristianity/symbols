@@ -102,6 +102,9 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 ### Arranged Schedule for Nicotine Lozenge
 
+* Dissolve in mouth for 20 minutes
+* Try not to smoke cigarettes
+
 Week of (Sun) | Every | Max/Day | Max/Week | Accumulative Max
 -- | -- | -- | -- | --
 Nov 16 | 2 hr | 8 | 56 | 56
