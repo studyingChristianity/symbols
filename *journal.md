@@ -26,7 +26,8 @@ num | time
 5 | 12:03p
 6 | 2:15p
 7 | 4:15p
-8 | 
+8 | 6:15p
+
 
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
 
