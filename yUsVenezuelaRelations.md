@@ -1,4 +1,4 @@
-# Novermber 2025 🇺🇸🇻🇪 News Articles
+# 📰 Novermber 2025 🇺🇸🇻🇪 News Articles
 
 Wed, 11/19/2025 [A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
 
