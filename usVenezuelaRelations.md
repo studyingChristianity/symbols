@@ -1,4 +1,4 @@
-# ✅ **1. FULL TIMELINE (1800s–2025)**
+# ✅ **1. FULL 🇺🇸🇻🇪 TIMELINE (1800s–2025)**
 
 A chronological summary of all major events in U.S.–Venezuela relations.
 
