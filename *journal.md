@@ -4,13 +4,15 @@
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
+[A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
+
 # Tue, 11/18/2025: 9️⃣ More Days ➡️ Thanksgiving Day
 
 * In the end, it's about whose DNAs win.
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
-> [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
+[Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
 
 # Mon, 11/17/2025: 🔟 More Days ➡️ Thanksgiving Day
 
