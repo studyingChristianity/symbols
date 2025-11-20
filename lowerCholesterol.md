@@ -179,3 +179,50 @@ Dec 21 | 16 hr | 1 | 7 | 175
 * Better sexual function and fertility.
 * Saving money.
 * No more smoke smell on clothes, home, and car.
+
+# Cigarette Withdrawal Symptoms
+
+Nicotine withdrawal is very common when quitting smoking, and it’s a **sign your body is healing**. Symptoms usually peak in the first 3–5 days and improve over 2–4 weeks. Here’s what you might experience:
+
+---
+
+## **🚫 Physical Withdrawal Symptoms**
+
+* **Strong cravings** for cigarettes
+* **Headaches**
+* **Coughing**, as your lungs start clearing mucus
+* **Fatigue** or low energy
+* **Increased appetite** or weight gain
+* **Constipation or stomach discomfort**
+* **Dry mouth or sore throat**
+* **Trouble sleeping** or vivid dreams
+* **Restlessness**
+
+---
+
+## **🧠 Psychological & Mood Symptoms**
+
+* **Irritability or anger**
+* **Anxiety or nervousness**
+* **Low mood or mild depression**
+* **Difficulty concentrating**
+* Feeling “on edge”
+
+These symptoms happen because your brain is rebalancing itself after losing a constant supply of nicotine.
+
+---
+
+## **⏱️ Timeline**
+
+* **First 24 hours:** headaches, cravings, irritability begin
+* **Days 3–5:** usually the most intense cravings and mood changes
+* **Week 2 onward:** physical symptoms fade; cravings become shorter and less frequent
+* **Week 4+:** most people feel significantly better and more stable
+
+---
+
+## **💡 Good news**
+
+* Withdrawal **does NOT last forever**.
+* Every symptom is temporary.
+* Your body is healing and re-learning how to function without nicotine.
