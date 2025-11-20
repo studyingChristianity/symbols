@@ -4,12 +4,6 @@
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
 
-### ECS updates:
-
-* Bad air quality from illegal drug activities
-* Stopping smokable系 (cigarettes, THC smokables)
-* Starting membrane系 (nicotine lozenge, CBN fruit chew)
-
 # Wed, 11/19/2025: 8️⃣ More Days ➡️ Thanksgiving Day
 
 * In the end, it's about whose DNAs win.
