@@ -7,8 +7,8 @@
 ### ECS updates:
 
 * Bad air quality from illegal drug activities
-* Stopping smokables (cigarettes, THC products)
-* Starting membranes系 (nicotine lozenge, CBN fruit chew)
+* Stopping smokable系 (cigarettes, THC smokables)
+* Starting membrane系 (nicotine lozenge, CBN fruit chew)
 
 # Wed, 11/19/2025: 8️⃣ More Days ➡️ Thanksgiving Day
 
