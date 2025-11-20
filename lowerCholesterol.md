@@ -1,6 +1,10 @@
-✅ Apples ✅ Mangos ✅ Raspberries ✅ Oats & Almond milk ✅ Yogurt & Cookie butter ✅ Tofu
+## How to 🔼 HDL Cholesterol and 🔽 LDL Cholesterol
 
----
+* 👍🏻**Exercise regularly** (Lowers LDL by 5–10%)
+* 👍🏻**Lose excess weight**
+* 👍🏻**Quit smoking** (Improves LDL particle quality)
+* 👍🏻**Reduce stress**
+* 👍🏻**Sleep well**
 
 🌟 | 👍🏻 | 9/17/2025  | ➡️🍴 | 10/23/2025 | ➡️🏃🏻 | 11/14/2025 | ➡️🚭 | Jan 2025
 -- | -- | -- | -- | -- | -- | -- | -- | --
@@ -13,18 +17,6 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | ➡️ | ? | �
 <h3>HDL Cholesterol</h3>
 
 HDL (high-density lipoprotein) cholesterol helps remove excess cholesterol from the bloodstream and transport it to the liver for excretion or recycling. This process helps protect against plaque buildup in arteries, reducing the risk of heart disease and stroke.
-
----
-
-<h3>How to 🔼 HDL Cholesterol and 🔽 LDL Cholesterol</h3>
-
-* 👍🏻**Exercise regularly** (Lowers LDL by 5–10%)
-* 👍🏻**Lose excess weight**
-* 👍🏻**Quit smoking** (Improves LDL particle quality)
-* 👍🏻**Reduce stress**
-* 👍🏻**Sleep well**
-
----
 
 <h3>Triglycerides</h3>
 
@@ -100,7 +92,7 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 <h1>3. Quitting cigarettes</h1>
 
-### Arranged Schedule for Nicotine Lozenge
+## 🌠 Arranged Schedule for Nicotine Lozenge
 
 * Dissolve in mouth for 20 minutes
 * Try not to smoke cigarettes
@@ -114,115 +106,86 @@ Dec 7 | 4 hr | 4 | 28 | 154
 Dec 14 | 8 hr | 2 | 14 | 168
 Dec 21 | 16 hr | 1 | 7 | 175
 
-## **🌬️ Within Minutes to Weeks of quitting cigarettes**
+---
 
-### **20 minutes**
+## **1. Immediate & Short-Term Benefits (Minutes → Weeks)**
 
-* Heart rate and blood pressure drop toward normal.
+### **Short-Term Timeline of Improvements**
 
-### **8–12 hours**
-
-* Carbon monoxide levels in your blood return to normal.
-* More oxygen reaches your organs and brain.
-
-### **24–72 hours**
-
-* Nicotine starts leaving your system.
-* Your breathing becomes easier.
-* Sense of **smell and taste improve** noticeably.
-* Bronchial tubes begin to relax and open.
-
-### **2–12 weeks**
-
-* **Circulation improves**, making physical activity easier.
-* Your lungs work better and you become less short of breath.
-* Coughing and mucus production start decreasing.
+| Time After Quitting | Benefit                                                              |
+| ------------------- | -------------------------------------------------------------------- |
+| **20 minutes**      | Heart rate and blood pressure begin to drop.                         |
+| **12 hours**        | Carbon monoxide levels in blood return to normal.                    |
+| **24–48 hours**     | Nicotine levels significantly decrease; taste and smell improve.     |
+| **72 hours**        | Breathing becomes easier as bronchial tubes relax; energy increases. |
+| **2–12 weeks**      | Circulation improves; lung function increases.                       |
 
 ---
 
-## **💪 In the First Few Months**
+## **2. Long-Term Physical Health Benefits**
 
-* Immune system gets stronger.
-* Fatigue and headaches lessen.
-* Skin looks healthier because of improved blood flow.
-* Teeth and breath start improving noticeably.
-
----
-
-## **❤️ Long-Term Benefits**
-
-### **1 year**
-
-* Your risk of coronary heart disease is **cut in half** compared to someone who still smokes.
-
-### **5 years**
-
-* Risk of stroke drops dramatically (often to that of a non-smoker).
-* Risk of mouth, throat, and esophageal cancer decreases significantly.
-
-### **10 years**
-
-* Lung cancer risk is about **half** that of a smoker.
-* Lower risk of bladder, kidney, and pancreatic cancers.
-
-### **15 years**
-
-* Risk of heart disease is close to that of someone who never smoked.
+| System/Area             | Benefits After Quitting                                                                         |
+| ----------------------- | ----------------------------------------------------------------------------------------------- |
+| **Heart & Circulation** | Reduced risk of heart disease, stroke, and high blood pressure; improved blood vessel function. |
+| **Lungs**               | Improved lung capacity; less coughing and wheezing; lower risk of COPD and lung cancer.         |
+| **Immune System**       | Stronger immune response and reduced inflammation.                                              |
+| **Skin**                | Better skin tone, slower aging, improved collagen production.                                   |
+| **Oral Health**         | Lower risk of gum disease, tooth loss, and oral cancer.                                         |
+| **Cancer Risk**         | Decreases for lung, throat, esophageal, bladder, stomach, and pancreatic cancers over time.     |
 
 ---
 
-## **🔥 Other Immediate Quality-of-Life Benefits**
+## **3. Mental & Cognitive Benefits**
 
-* More energy and better stamina.
-* Better sleep.
-* Less anxiety (after withdrawal settles).
-* Better sexual function and fertility.
-* Saving money.
-* No more smoke smell on clothes, home, and car.
-
-# Cigarette Withdrawal Symptoms
-
-Nicotine withdrawal is very common when quitting smoking, and it’s a **sign your body is healing**. Symptoms usually peak in the first 3–5 days and improve over 2–4 weeks. Here’s what you might experience:
+| Benefit                                | Description                                                                                      |
+| -------------------------------------- | ------------------------------------------------------------------------------------------------ |
+| **Reduced anxiety spikes**             | Nicotine withdrawal is temporary; afterward, baseline anxiety typically drops.                   |
+| **More stable mood**                   | Less irritability tied to nicotine crashes.                                                      |
+| **Better focus & cognitive endurance** | After withdrawal stabilizes, improved sustained attention and fewer concentration interruptions. |
+| **Improved sleep**                     | Fewer nighttime awakenings; deeper sleep stages return.                                          |
 
 ---
 
-## **🚫 Physical Withdrawal Symptoms**
+## **4. Fitness & Performance Benefits**
 
-* **Strong cravings** for cigarettes
-* **Headaches**
-* **Coughing**, as your lungs start clearing mucus
-* **Fatigue** or low energy
-* **Increased appetite** or weight gain
-* **Constipation or stomach discomfort**
-* **Dry mouth or sore throat**
-* **Trouble sleeping** or vivid dreams
-* **Restlessness**
+| Benefit                             | Impact                                                                                           |
+| ----------------------------------- | ------------------------------------------------------------------------------------------------ |
+| **Better cardiovascular endurance** | Improved oxygen delivery to muscles.                                                             |
+| **Stronger workout capacity**       | Higher stamina and faster recovery.                                                              |
+| **Improved muscle growth**          | Nicotine interferes with nutrient absorption and protein synthesis; quitting helps reverse this. |
+| **Better overall energy levels**    | No more nicotine-induced fatigue cycles.                                                         |
 
 ---
 
-## **🧠 Psychological & Mood Symptoms**
+## **5. Financial Benefits**
 
-* **Irritability or anger**
-* **Anxiety or nervousness**
-* **Low mood or mild depression**
-* **Difficulty concentrating**
-* Feeling “on edge”
+### **Cost Savings Table**
 
-These symptoms happen because your brain is rebalancing itself after losing a constant supply of nicotine.
+*(Example based on a $8/day vaping or smoking habit—adjust to your actual usage)*
 
----
-
-## **⏱️ Timeline**
-
-* **First 24 hours:** headaches, cravings, irritability begin
-* **Days 3–5:** usually the most intense cravings and mood changes
-* **Week 2 onward:** physical symptoms fade; cravings become shorter and less frequent
-* **Week 4+:** most people feel significantly better and more stable
+| Time Smoke-Free | Money Saved |
+| --------------- | ----------- |
+| **1 week**      | ~$56        |
+| **1 month**     | ~$240       |
+| **6 months**    | ~$1,440     |
+| **1 year**      | ~$2,880     |
 
 ---
 
-## **💡 Good news**
+## **6. Social & Lifestyle Benefits**
 
-* Withdrawal **does NOT last forever**.
-* Every symptom is temporary.
-* Your body is healing and re-learning how to function without nicotine.
+* No more nicotine cravings dictating your schedule.
+* Improved smell, breath, and overall hygiene.
+* No dependence on chargers, pods, lighters, or designated smoking areas.
+* More self-control and confidence.
+
+---
+
+# **7. Long-Term Health Milestones**
+
+| Time Smoke-Free | Benefit                                            |
+| --------------- | -------------------------------------------------- |
+| **1 year**      | Risk of coronary heart disease cut by ~50%.        |
+| **5 years**     | Risk of stroke can return to that of a non-smoker. |
+| **10 years**    | Risk of lung cancer drops by up to 50%.            |
+| **15 years**    | Risk of heart disease equal to a non-smoker's.     |
