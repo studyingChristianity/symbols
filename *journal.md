@@ -1,8 +1,8 @@
 # Thu, 11/20/2025: 7️⃣ More Days ➡️ Thanksgiving Day
 
 * In the end, it's about whose DNAs win.
-* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave their DNAs. Leave those DNAs.
-* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave their DNAs. Stay with those DNAs.
+* ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave-Leave DNAs. Feel-good系.
+* Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave-Stay DNAs. Get-educated系.
 
 # Wed, 11/19/2025: 8️⃣ More Days ➡️ Thanksgiving Day
 
