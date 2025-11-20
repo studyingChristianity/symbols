@@ -113,3 +113,69 @@ Nov 30 | 4 hr | 4 | 28 | 126
 Dec 7 | 4 hr | 4 | 28 | 154
 Dec 14 | 8 hr | 2 | 14 | 168
 Dec 21 | 16 hr | 1 | 7 | 175
+
+## **🌬️ Within Minutes to Weeks of quitting cigarettes**
+
+### **20 minutes**
+
+* Heart rate and blood pressure drop toward normal.
+
+### **8–12 hours**
+
+* Carbon monoxide levels in your blood return to normal.
+* More oxygen reaches your organs and brain.
+
+### **24–72 hours**
+
+* Nicotine starts leaving your system.
+* Your breathing becomes easier.
+* Sense of **smell and taste improve** noticeably.
+* Bronchial tubes begin to relax and open.
+
+### **2–12 weeks**
+
+* **Circulation improves**, making physical activity easier.
+* Your lungs work better and you become less short of breath.
+* Coughing and mucus production start decreasing.
+
+---
+
+## **💪 In the First Few Months**
+
+* Immune system gets stronger.
+* Fatigue and headaches lessen.
+* Skin looks healthier because of improved blood flow.
+* Teeth and breath start improving noticeably.
+
+---
+
+## **❤️ Long-Term Benefits**
+
+### **1 year**
+
+* Your risk of coronary heart disease is **cut in half** compared to someone who still smokes.
+
+### **5 years**
+
+* Risk of stroke drops dramatically (often to that of a non-smoker).
+* Risk of mouth, throat, and esophageal cancer decreases significantly.
+
+### **10 years**
+
+* Lung cancer risk is about **half** that of a smoker.
+* Lower risk of bladder, kidney, and pancreatic cancers.
+
+### **15 years**
+
+* Risk of heart disease is close to that of someone who never smoked.
+
+---
+
+## **🔥 Other Immediate Quality-of-Life Benefits**
+
+* More energy and better stamina.
+* Better sleep.
+* Less anxiety (after withdrawal settles).
+* Better sexual function and fertility.
+* Saving money.
+* No more smoke smell on clothes, home, and car.
