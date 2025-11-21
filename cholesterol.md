@@ -14,10 +14,6 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | �
 * **Triglycerides:** A type of fat in the blood that rises with excess calories, sugar, or alcohol and can raise cardiovascular risk when high.
 * **Non-HDL Cholesterol:** All the “bad” cholesterol combined (total cholesterol minus HDL), giving a fuller picture of artery-clogging particles.
 
-# 🛌🏻 Sleep well 🛌🏻
-
-# 🧸 Reduce stress 🧸
-
 # 🍴 Eat well 🍴
 
 * Quinoa, Greek non-fat yogurt
@@ -62,4 +58,4 @@ Dec 21 | 16 hr | 1 | 7 | 175
 
 # 🏋️ Lose excess weight 🏋️
 
-Add strength training at least 2 days/week.
+# 🛌🏻 Sleep well 🛌🏻🧸 Reduce stress 🧸
