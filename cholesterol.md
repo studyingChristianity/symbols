@@ -1,12 +1,5 @@
 # Cholesterol
 
-* 🛌🏻**Sleep well**🛌🏻
-* 🍴**Eat well**🍴
-* 🏃🏻**Exercise regularly**🏃🏻
-* 🧸**Reduce stress**🧸
-* 🚭**Quit smoking**
-* 🏋️**Lose excess weight**
-
 🌟 | 👍🏻 | 9/17/2025  | ➡️🍴 | 10/23/2025 | ➡️🏃🏻 | 11/14/2025 | ➡️🚭 | Jan 2025
 -- | -- | -- | -- | -- | -- | -- | -- | --
 Cholesterol, total | 👍🏻 < 200 mg/dL | 207  | 🔽 | 204 | 🔽 | 👍🏻197 | ➡️ | ?
@@ -21,7 +14,11 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | �
 * **Triglycerides:** A type of fat in the blood that rises with excess calories, sugar, or alcohol and can raise cardiovascular risk when high.
 * **Non-HDL Cholesterol:** All the “bad” cholesterol combined (total cholesterol minus HDL), giving a fuller picture of artery-clogging particles.
 
-<h1>1. Eating well</h1>
+# 🛌🏻 Sleep well 🛌🏻
+
+# 🧸 Reduce stress 🧸
+
+# 🍴 Eat well 🍴
 
 * Quinoa, Greek non-fat yogurt
 * Oranges, Apples, Mangos, Raspberries
@@ -31,7 +28,7 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | �
 * Cookie butteer, Dark chocolate cookies
 * Coffee, Green tea, Korean coffee, Fiber supplement, Diet Pepsi
 
-<h1>2. Exercising regularly</h1>
+# 🏃🏻 Exercise regularly 🏃🏻
 
 * 150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
 
@@ -40,7 +37,7 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | �
 | **After lunch** (10 min) | Light walking
 | **After dinner** (20 min) | Light walking
 
-<h1>3. Quitting cigarettes</h1>
+# 🚭 Quit smoking 🚭
 
 📍 | 👇🏻
 -- | --
@@ -63,6 +60,6 @@ Dec 7 | 4 hr | 4 | 28 | 154
 Dec 14 | 8 hr | 2 | 14 | 168
 Dec 21 | 16 hr | 1 | 7 | 175
 
-<h1>4. Losing excess weight</h1>
+# 🏋️ Lose excess weight 🏋️
 
 Add strength training at least 2 days/week.
