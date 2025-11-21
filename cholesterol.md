@@ -1,4 +1,4 @@
-## Cholesterol
+# Cholesterol
 
 * 🛌🏻**Sleep well**🛌🏻
 * 🍴**Eat well**🍴
@@ -45,7 +45,7 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | �
 📍 | 👇🏻
 -- | --
 ❌ Smoking | * 🔽 HDL & 🔼 LDL<br/>* 🔼 Oxidation of LDL
-🔵 Quitting: | * Reverses inflammation and improves lipid metabolism<br/>* Better circulation > healthier liver processing of fats**
+🔵 Quitting | * Reverses inflammation and improves lipid metabolism<br/>* Better circulation > healthier liver processing of fats**
 
 ---
 
@@ -63,11 +63,6 @@ Dec 7 | 4 hr | 4 | 28 | 154
 Dec 14 | 8 hr | 2 | 14 | 168
 Dec 21 | 16 hr | 1 | 7 | 175
 
-<h1>4. Exercising - Updated</h1>
-
-Improve Body Weight (If Needed).
+<h1>4. Losing excess weight</h1>
 
 Add strength training at least 2 days/week.
-Exercise helps lower LDL and raise protective HDL.
-
-Even losing 5–10% of body weight can significantly lower LDL and triglycerides.
