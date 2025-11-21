@@ -78,6 +78,14 @@ High blood levels of triglycerides may be caused by overweight/obesity, a diet v
 
 <h1>3. Quitting cigarettes</h1>
 
+### ⭐**1. ❌ Smoking 🔽 HDL, “good” cholesterol**
+### ⭐**2. ❌ Smoking 🔼 LDL, “bad” cholesterol and triglycerides**
+### ⭐**3. ❌ Smoking 🔼 oxidation of LDL**
+### ⭐**4. 🔵 Quitting reverses inflammation and improves lipid metabolism**
+### ⭐**5. 🔵 Better circulation > healthier liver processing of fats**
+
+---
+
 ## 🌠 Arranged Schedule for Nicotine Lozenge
 
 * Dissolve in mouth for 20 minutes
