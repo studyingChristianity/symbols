@@ -38,7 +38,7 @@ Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | �
 📍 | 👇🏻
 -- | --
 ❌ Smoking | * 🔽 HDL & 🔼 LDL<br/>* 🔼 Oxidation of LDL
-🔵 Quitting | * Reverses inflammation and improves lipid metabolism<br/>* Better circulation > healthier liver processing of fats**
+🔵 Quitting | * Reverses inflammation and improves lipid metabolism<br/>* Better circulation > healthier liver processing of fats
 
 ---
 
