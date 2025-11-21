@@ -2,6 +2,7 @@
 
 Date | Link
 -- | --
+Thu, 11/20/2025 | [The Web of Venezuelan Generals Accused of Fueling the Cocaine Trade](https://www.msn.com/en-us/news/world/the-web-of-venezuelan-generals-accused-of-fueling-the-cocaine-trade/ar-AA1QQQ34?ocid=hpmsn&cvid=691fe1e9fc2545fba4c47872cc13fcd7&ei=9)
 Wed, 11/19/2025 | [A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
 Tue, 11/18/2025 | [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
 Mon, 11/17/2025 | [US To Label Venezuela’s Cartel De Los Soles As Terrorists](https://www.msn.com/en-us/news/world/us-to-label-venezuela-s-cartel-de-los-soles-as-terrorists/vi-AA1QAzFe?ocid=hpmsn&cvid=691ba3b0a16348e5b9bf5f6a7e8b4d3d&ei=38#)
