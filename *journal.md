@@ -4,6 +4,16 @@
 * ナルシ族 (= Scammers) keeps working toward their missionaries. They are running around. Leave-Leave DNAs. Feel-good系.
 * Non-ナルシ族 keeps working on getting/staying healthy. They are running stings. Leave-Stay DNAs. Get-educated系.
 
+---
+
+* Quinoa, Greek non-fat yogurt
+* Oranges, Apples, Mangos, Raspberries
+* Yakibitashi
+* Natto, Tofu, Seafood
+* Mozzarella cheese, Pecan nuts
+* Cookie butteer, Dark chocolate cookies
+* Coffee, Green tea, Korean coffee, Fiber supplement, Diet Pepsi
+
 # Fri, 11/21/2025: 6️⃣ More Days ➡️ Thanksgiving Day
 
 * In the end, it's about whose DNAs win.
