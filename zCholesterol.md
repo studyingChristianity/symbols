@@ -8,14 +8,6 @@
 
 # 1. 🍴 Eat well 🍴
 
-* Quinoa, Greek non-fat yogurt
-* Oranges, Apples, Mangos, Raspberries
-* Yakibitashi
-* Natto, Tofu, Seafood
-* Mozzarella cheese, Pecan nuts
-* Cookie butteer, Dark chocolate cookies
-* Coffee, Green tea, Korean coffee, Fiber supplement, Diet Pepsi
-
 NOTE: ✨ indicates high in antioxidants
 
 🏝️ | Eat 👍🏻 | Avoid 👎🏻
