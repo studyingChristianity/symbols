@@ -6,6 +6,10 @@
 
 ---
 
+🔥 [US issues NOTAM air warning around Venezuela](https://www.msn.com/en-us/news/world/us-issues-notam-air-warning-around-venezuela/ss-AA1QUzSO?ocid=hpmsn&cvid=6921fc7048374ac9ba3246c2038209ca&ei=11#image=1)
+
+---
+
 ## 🐖 Richard Nixon's Desire to Avoid Personal and Political Embarrassment
 
 After the break-in, Nixon’s main motive became covering it up, not because he ordered it (there’s no evidence he did), but because he feared:
