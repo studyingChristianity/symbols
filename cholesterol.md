@@ -6,7 +6,7 @@
 * **Triglycerides:** A type of fat in the blood that rises with excess calories, sugar, or alcohol and can raise cardiovascular risk when high.
 * **Non-HDL Cholesterol:** All the “bad” cholesterol combined (total cholesterol minus HDL), giving a fuller picture of artery-clogging particles.
 
-# 🍴 Eat well 🍴
+# 1. 🍴 Eat well 🍴
 
 * Quinoa, Greek non-fat yogurt
 * Oranges, Apples, Mangos, Raspberries
@@ -16,7 +16,7 @@
 * Cookie butteer, Dark chocolate cookies
 * Coffee, Green tea, Korean coffee, Fiber supplement, Diet Pepsi
 
-# 🏃🏻 Exercise regularly 🏃🏻
+# 2. 🏃🏻 Exercise regularly 🏃🏻
 
 * 150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
 
@@ -25,41 +25,4 @@
 | **After lunch** (10 min) | Light walking
 | **After dinner** (20 min) | Light walking
 
-# 🚭 Quit smoking 🚭
-
-## 🌠 Arranged Schedule for Nicotine Lozenge
-
-* Dissolve in mouth for 20 minutes
-* Try not to smoke cigarettes
-
-Week of (Sun) | Every | Max/Day | Max/Week | Accumulative Max
--- | -- | -- | -- | --
-Nov 16 | 2 hr | 8 | 56 | 56
-Nov 23 | 3 hr | 6 | 42 | 98
-Nov 30 | 4 hr | 4 | 28 | 126
-Dec 7 | 4 hr | 4 | 28 | 154
-Dec 14 | 8 hr | 2 | 14 | 168
-Dec 21 | 16 hr | 1 | 7 | 175
-
----
-
-## Nicotine Withdrawal Symptoms
-
-### **Physical Symptoms**
-
-* **Headaches**
-* **Increased appetite** or weight gain
-* **Trouble sleeping** or vivid dreams
-* **Fatigue or low energy**
-* **Coughing** or sore throat (lungs clearing out)
-* **Constipation** or stomach discomfort
-
-### **Mental & Emotional Symptoms**
-
-* **Irritability or frustration**
-* **Anxiety**
-* **Difficulty concentrating**
-* **Restlessness**
-* **Depressed mood**
-
-# 🏋️ Lose excess weight 🏋️
+# 3. 🚭 Quit smoking 🚭
