@@ -1,13 +1,5 @@
 # Cholesterol
 
-🌟 | 👍🏻 | 9/17/2025  | ➡️🍴 | 10/23/2025 | ➡️🏃🏻 | 11/14/2025 | ➡️🚭 | Jan 2025
--- | -- | -- | -- | -- | -- | -- | -- | --
-Cholesterol, total | 👍🏻 < 200 mg/dL | 207  | 🔽 | 204 | 🔽 | 👍🏻197 | ➡️ | ?
-HDL Cholesterol | 👍🏻 >= 50 mg/dL | 47 | 🔼 | 👍🏻53 | 🔼 | 👍🏻54 | ➡️ | ?
-LDL Cholesterol | 👍🏻 < 100 mg/dL | 125 | 🔼 | 126 | 🔽 | 122| ➡️ | ?
-Triglycerides | 👍🏻 < 150 mg/dL | 201 | 🔽 | 👍🏻135 | 🔽 | 👍🏻100 | ➡️ | ?
-Non-HDL Cholesterol | 👍🏻 < 130 mg/dL) | 160 | 🔽 | 151 | 🔽 | 143 | ➡️ | ?
-
 * **Cholesterol, total:** The overall amount of cholesterol in your blood, including HDL, LDL, and other lipid components.
 * **HDL Cholesterol:** The “good” cholesterol that helps remove excess cholesterol from your arteries.
 * **LDL Cholesterol:** The “bad” cholesterol that can build up in artery walls and increase heart disease risk.
