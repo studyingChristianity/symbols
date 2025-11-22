@@ -6,6 +6,19 @@
 
 ---
 
+## Richard Nixon's Desire to Avoid Personal and Political Embarrassment
+
+After the break-in, Nixon’s main motive became covering it up, not because he ordered it (there’s no evidence he did), but because he feared:
+
+* scandal
+* the fall of his senior aides
+* political humiliation
+* damage to his presidency
+
+As often happens, the cover-up became worse than the crime.
+
+---
+
 * Quinoa, Greek non-fat yogurt
 * Oranges, Apples, Mangos, Raspberries
 * Yakibitashi
