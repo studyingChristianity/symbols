@@ -6,7 +6,7 @@
 
 ---
 
-## Richard Nixon's Desire to Avoid Personal and Political Embarrassment
+## 🐖 Richard Nixon's Desire to Avoid Personal and Political Embarrassment
 
 After the break-in, Nixon’s main motive became covering it up, not because he ordered it (there’s no evidence he did), but because he feared:
 
@@ -15,7 +15,7 @@ After the break-in, Nixon’s main motive became covering it up, not because he 
 * political humiliation
 * damage to his presidency
 
-As often happens, the cover-up became worse than the crime.
+🐽 As often happens, the cover-up became worse than the crime.
 
 ---
 
