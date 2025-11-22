@@ -6,6 +6,8 @@
 
 ---
 
+🌟 [Trump paints Zelenskyy into a corner with his new plan to end Russia’s war on Ukraine](https://apnews.com/article/trump-zelenskyy-ukraine-russia-war-ece1a80b435f402b475fb180023a75dc)
+
 🔥 [US issues NOTAM air warning around Venezuela](https://www.msn.com/en-us/news/world/us-issues-notam-air-warning-around-venezuela/ss-AA1QUzSO?ocid=hpmsn&cvid=6921fc7048374ac9ba3246c2038209ca&ei=11#image=1)
 
 ---
