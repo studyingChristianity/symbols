@@ -1,5 +1,11 @@
 November 7, 2028: https://en.wikipedia.org/wiki/2028_United_States_presidential_election
 
+---
+
+[John Lennon](https://en.wikipedia.org/wiki/John_Lennon)
+
+---
+
 [Bush dynasty quietly plots Republican Party comeback as Trump era comes to a close](https://www.newstarget.com/2025-11-22-bush-dynasty-plots-gop-comeback-trump-exit.html)
 Here are the three key points from the article:
 
