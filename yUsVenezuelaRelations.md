@@ -2,6 +2,7 @@
 
 Date | Link
 -- | --
+Sat, 11/22/2025 | [Days ahead of terrorism designation for Maduro, US military performs large ‘attack demo’ near Venezuela](https://www.msn.com/en-us/news/world/days-ahead-of-terrorism-designation-for-maduro-us-military-performs-large-attack-demo-near-venezuela/ar-AA1QUMVx?ocid=msedgdhp&pc=U531&cvid=075b9e93811b4d84ce4efd3d656a6638&ei=18) 
 Thu, 11/20/2025 | [The Web of Venezuelan Generals Accused of Fueling the Cocaine Trade](https://www.msn.com/en-us/news/world/the-web-of-venezuelan-generals-accused-of-fueling-the-cocaine-trade/ar-AA1QQQ34?ocid=hpmsn&cvid=691fe1e9fc2545fba4c47872cc13fcd7&ei=9)
 Wed, 11/19/2025 | [A nation gasping: Federal advisories force Americans indoors as toxic air threatens public health](https://www.newstarget.com/2025-11-19-americans-forced-indoors-toxic-air-threatens-health.html)
 Tue, 11/18/2025 | [Venezuela’s opposition leader publishes ‘freedom manifesto’ from hiding as Maduro opens door to dialogue with Trump](https://edition.cnn.com/2025/11/18/americas/venezuela-maria-corina-machado-freedom-manifesto-latam-intl)
