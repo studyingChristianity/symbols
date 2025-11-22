@@ -27,13 +27,6 @@
 
 # 🚭 Quit smoking 🚭
 
-📍 | 👇🏻
--- | --
-❌ Smoking | * 🔽 HDL & 🔼 LDL<br/>* 🔼 Oxidation of LDL
-🔵 Quitting | * Reverses inflammation and improves lipid metabolism<br/>* Better circulation > healthier liver processing of fats
-
----
-
 ## 🌠 Arranged Schedule for Nicotine Lozenge
 
 * Dissolve in mouth for 20 minutes
@@ -48,6 +41,25 @@ Dec 7 | 4 hr | 4 | 28 | 154
 Dec 14 | 8 hr | 2 | 14 | 168
 Dec 21 | 16 hr | 1 | 7 | 175
 
-# 🏋️ Lose excess weight 🏋️
+---
 
-# 🛌🏻 Sleep well 🛌🏻🧸 Reduce stress 🧸
+## Nicotine Withdrawal Symptoms
+
+### **Physical Symptoms**
+
+* **Headaches**
+* **Increased appetite** or weight gain
+* **Trouble sleeping** or vivid dreams
+* **Fatigue or low energy**
+* **Coughing** or sore throat (lungs clearing out)
+* **Constipation** or stomach discomfort
+
+### **Mental & Emotional Symptoms**
+
+* **Irritability or frustration**
+* **Anxiety**
+* **Difficulty concentrating**
+* **Restlessness**
+* **Depressed mood**
+
+# 🏋️ Lose excess weight 🏋️
