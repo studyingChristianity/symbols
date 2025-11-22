@@ -6,6 +6,8 @@
 
 ---
 
+✈️ [Several international airlines cancel their flights in Venezuela after US warning](https://www.msn.com/en-us/news/world/several-international-airlines-cancel-their-flights-in-venezuela-after-us-warning/ar-AA1QXI5r?ocid=hpmsn&cvid=69223be64f8d40a7abeab74570748448&ei=11)
+
 🌟 [Trump paints Zelenskyy into a corner with his new plan to end Russia’s war on Ukraine](https://apnews.com/article/trump-zelenskyy-ukraine-russia-war-ece1a80b435f402b475fb180023a75dc)
 
 🔥 [US issues NOTAM air warning around Venezuela](https://www.msn.com/en-us/news/world/us-issues-notam-air-warning-around-venezuela/ss-AA1QUzSO?ocid=hpmsn&cvid=6921fc7048374ac9ba3246c2038209ca&ei=11#image=1)
