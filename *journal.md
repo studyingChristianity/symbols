@@ -1,6 +1,6 @@
 # Sun, 11/23/2025: 4️⃣ More Days ➡️ Thanksgiving Day
 
-* In the end, it's about whose DNAs win.
+In the end, it's about whose DNAs win.
 
 ナルシ族 (= Scammers) | Non-ナルシ族
 -- | --
