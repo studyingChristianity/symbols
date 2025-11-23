@@ -10,7 +10,7 @@ Feel-good系 | Get-educated系
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
 > 🗣️ Epstein files are out. > The aristocrats are exposing each other.<br/>
-> 🛩️ The US is aboutu to air-strike Venezuela.<br/>
+> 🛩️ The US is about to air-strike Venezuela.<br/>
 > 🕊️ The Russia-Ukraine War is ending.
 
 > [!IMPORTANT]
