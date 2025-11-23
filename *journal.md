@@ -10,6 +10,7 @@ Feel-good系 | Get-educated系
 > [!IMPORTANT]
 > * In the end, it's about whose DNAs win.
 > * Saturn goes direct on Thursday, November 27, 2025 at ~7:51 PM Pacific Time.
+> * Mercury goes direct on Saturday, November 29, 2025 at ~9:38 AM Pacific Time.
 
 # Sat, 11/22/2025: 5️⃣ More Days ➡️ Thanksgiving Day
 
