@@ -6,6 +6,21 @@
 
 ---
 
+### 🔍 [The fallout of Epstein’s crimes spans the globe. Here’s a look at some of those paying the cost](https://apnews.com/article/cb9ea7854da0582f7f5ddb2efd5fca6a?utm_source=chatgpt.com)
+
+* More than **1,000 Epstein victims** remain central to ongoing fallout. ([AP News][1])
+* **Donald Trump** signed a bill forcing the DOJ to release many Epstein files — a reversal given his earlier resistance. ([AP News][1])
+* In one email, Epstein claimed Trump “knew about the girls,” though it remains unclear exactly what Trump allegedly knew. ([The Washington Post][2])
+* The White House disputes the narrative, calling the email release a political “smear.” ([The Washington Post][2])
+* **Lawrence Summers** (economist / former Treasury Secretary) stayed in touch with Epstein until at least 2019, including seeking personal advice. ([AP News][1])
+* Due to the revelations, Summers has stepped away from several roles (e.g., OpenAI, think tanks) and is under review by Harvard. ([Politico][3])
+* **Harvard University** is reopening its investigation into Epstein’s ties to the institution. ([AP News][1])
+* **Prince Andrew** (now Andrew Mountbatten-Windsor) was stripped of royal titles and evicted from his residence after links to Epstein resurfaced, including testimony from a victim. ([AP News][1])
+* Public trust is eroding: Epstein’s network included royalty, academics, political figures, and institutions — showing the deep and long-lasting influence he maintained. ([AP News][1])
+* The article underscores how Epstein’s crimes continue to have global repercussions, even years after his death. ([AP News][1])
+
+---
+
 ✈️ [Several international airlines cancel their flights in Venezuela after US warning](https://www.msn.com/en-us/news/world/several-international-airlines-cancel-their-flights-in-venezuela-after-us-warning/ar-AA1QXI5r?ocid=hpmsn&cvid=69223be64f8d40a7abeab74570748448&ei=11)
 
 🌟 [Trump paints Zelenskyy into a corner with his new plan to end Russia’s war on Ukraine](https://apnews.com/article/trump-zelenskyy-ukraine-russia-war-ece1a80b435f402b475fb180023a75dc)
@@ -24,16 +39,6 @@ After the break-in, Nixon’s main motive became covering it up, not because he 
 * damage to his presidency
 
 🐽 As often happens, the cover-up became worse than the crime.
-
----
-
-* Quinoa, Greek non-fat yogurt
-* Oranges, Apples, Mangos, Raspberries
-* Yakibitashi
-* Natto, Tofu, Seafood
-* Mozzarella cheese, Pecan nuts
-* Cookie butteer, Dark chocolate cookies
-* Coffee, Green tea, Korean coffee, Fiber supplement, Diet Pepsi
 
 # Fri, 11/21/2025: 6️⃣ More Days ➡️ Thanksgiving Day
 
