@@ -22,7 +22,7 @@ Oils and Fats | Oils from: Olive, Peanut, Puritan, Canola, Grape Seed<br/>Avocad
 
 # 2. 🏃🏻 Exercise regularly 🏃🏻
 
-* 150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
+150–300 minutes per week (Average 21.4 - 42.9 minutes per day) of moderate activity
 
 | Time | Activity
 | -- | --
@@ -30,3 +30,16 @@ Oils and Fats | Oils from: Olive, Peanut, Puritan, Canola, Grape Seed<br/>Avocad
 | **After dinner** (20 min) | Light walking
 
 # 3. 🚭 Quit smoking 🚭
+
+## **Smoking-Cessation Medications Comparison Table**
+
+| **Medication / Product** | **OTC / Rx** | **Type** | **Common Side Effects** | **Recommended Duration** | **Notes** |
+| -- | -- | -- | -- | -- | -- |
+| **Nicotine Patch**                      | OTC               | Nicotine Replacement (steady release)      | Skin irritation, vivid dreams, insomnia | 8–12 weeks (sometimes longer)         | Provides baseline nicotine; often combined with gum/lozenges   |
+| **Nicotine Gum**                        | OTC               | Nicotine Replacement (oral/short-acting)   | Mouth soreness, hiccups, jaw fatigue    | 8–12 weeks                            | Good for breakthrough cravings; chew-and-park method           |
+| **Nicotine Lozenge**                    | OTC               | Nicotine Replacement (oral/short-acting)   | Throat irritation, nausea, heartburn    | 8–12 weeks                            | Easier alternative to gum                                      |
+| **Nicotine Nasal Spray**                | Prescription      | Nicotine Replacement (fast delivery)       | Nasal irritation, watery eyes, cough    | 3–6 months                            | Fastest craving relief of all NRTs                             |
+| **Nicotine Inhaler**                    | Prescription      | Nicotine Replacement (vapor via cartridge) | Throat irritation, cough                | 3–6 months                            | Mimics hand-to-mouth smoking behavior                          |
+| **Varenicline (Chantix)**               | Prescription      | Partial nicotinic agonist                  | Nausea, insomnia, vivid dreams          | 12 weeks (often extended to 24 weeks) | Reduces reward from smoking & cravings; top first-line therapy |
+| **Bupropion SR (Zyban)**                | Prescription      | Antidepressant                             | Dry mouth, insomnia, anxiety            | 7–12 weeks                            | Helps limit post-quit weight gain; avoid in seizure disorders  |
+| **Cytisine** (not FDA-approved in U.S.) | Varies by country | Partial nicotinic agonist                  | Nausea, stomach upset                   | 25-day course or extended protocols   | Widely used internationally; inexpensive                       |
