@@ -1,3 +1,14 @@
+# Sun, 11/23/2025: 4️⃣ More Days ➡️ Thanksgiving Day
+
+* In the end, it's about whose DNAs win.
+
+ナルシ族 (= Scammers) | Non-ナルシ族
+-- | --
+Working toward their missionaries | Working on getting/staying healthy
+Running around | Running stings
+Leave their DNAs. Leave those DNAs. | Leave their DNAs. Stay with those DNAs.
+Feel-good系 | Get-educated系
+
 # Sat, 11/22/2025: 5️⃣ More Days ➡️ Thanksgiving Day
 
 * In the end, it's about whose DNAs win.
@@ -8,16 +19,16 @@
 
 ### 🔍 [The fallout of Epstein’s crimes spans the globe. Here’s a look at some of those paying the cost](https://apnews.com/article/cb9ea7854da0582f7f5ddb2efd5fca6a?utm_source=chatgpt.com)
 
-* More than **1,000 Epstein victims** remain central to ongoing fallout. ([AP News][1])
-* **Donald Trump** signed a bill forcing the DOJ to release many Epstein files — a reversal given his earlier resistance. ([AP News][1])
-* In one email, Epstein claimed Trump “knew about the girls,” though it remains unclear exactly what Trump allegedly knew. ([The Washington Post][2])
-* The White House disputes the narrative, calling the email release a political “smear.” ([The Washington Post][2])
-* **Lawrence Summers** (economist / former Treasury Secretary) stayed in touch with Epstein until at least 2019, including seeking personal advice. ([AP News][1])
-* Due to the revelations, Summers has stepped away from several roles (e.g., OpenAI, think tanks) and is under review by Harvard. ([Politico][3])
-* **Harvard University** is reopening its investigation into Epstein’s ties to the institution. ([AP News][1])
-* **Prince Andrew** (now Andrew Mountbatten-Windsor) was stripped of royal titles and evicted from his residence after links to Epstein resurfaced, including testimony from a victim. ([AP News][1])
-* Public trust is eroding: Epstein’s network included royalty, academics, political figures, and institutions — showing the deep and long-lasting influence he maintained. ([AP News][1])
-* The article underscores how Epstein’s crimes continue to have global repercussions, even years after his death. ([AP News][1])
+* More than **1,000 Epstein victims** remain central to ongoing fallout.
+* **Donald Trump** signed a bill forcing the DOJ to release many Epstein files — a reversal given his earlier resistance.
+* In one email, Epstein claimed Trump “knew about the girls,” though it remains unclear exactly what Trump allegedly knew.
+* The White House disputes the narrative, calling the email release a political “smear.”
+* **Lawrence Summers** (economist / former Treasury Secretary) stayed in touch with Epstein until at least 2019, including seeking personal advice.
+* Due to the revelations, Summers has stepped away from several roles (e.g., OpenAI, think tanks) and is under review by Harvard.
+* **Harvard University** is reopening its investigation into Epstein’s ties to the institution.
+* **Prince Andrew** (now Andrew Mountbatten-Windsor) was stripped of royal titles and evicted from his residence after links to Epstein resurfaced, including testimony from a victim.
+* Public trust is eroding: Epstein’s network included royalty, academics, political figures, and institutions — showing the deep and long-lasting influence he maintained.
+* The article underscores how Epstein’s crimes continue to have global repercussions, even years after his death.
 
 ---
 
