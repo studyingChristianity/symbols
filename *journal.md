@@ -2,7 +2,8 @@
 
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
-> ✏️ [US to label Venezuela’s Cartel de los Soles as a terror organization](https://apnews.com/live/trump-news-updates-11-24-2025)
+> ✏️ [US to label Venezuela’s Cartel de los Soles as a terror organization](https://apnews.com/live/trump-news-updates-11-24-2025)<br/>
+> 💋 [Erika Kirk, Charlie Kirk's widow, is a transgender, so are other beauty pageant contestants.](https://www.msn.com/en-us/entertainment/entertainment-celebrity/charlie-kirk-and-his-wife-being-transvestigated-here-s-what-it-means/ar-AA1R3886?ocid=hpmsn&cvid=692478e878674f74abd5fa0fe12fd652&ei=36)
 
 ナルシ族 (= Scammers) | Non-ナルシ族
 -- | --
