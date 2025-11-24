@@ -1,4 +1,8 @@
-# Sun, 11/23/2025: 4️⃣ More Days ➡️ Thanksgiving Day
+# Mon, 11/24/2025: 3️⃣ More Days ➡️ Thanksgiving Day
+
+>[!NOTE]
+> 💥 What's going on in the world:<br/>
+> ✏️ [US to label Venezuela’s Cartel de los Soles as a terror organization](https://apnews.com/live/trump-news-updates-11-24-2025)
 
 ナルシ族 (= Scammers) | Non-ナルシ族
 -- | --
@@ -7,11 +11,25 @@ Running around | Running stings
 Leave their DNAs. Leave those DNAs. | Leave their DNAs. Stay with those DNAs.
 Feel-good系 | Get-educated系
 
+> [!IMPORTANT]
+> * In the end, it's about whose DNAs win.
+> * Saturn goes direct on Thursday, November 27, 2025 at ~7:51 PM Pacific Time.
+> * Mercury goes direct on Saturday, November 29, 2025 at ~9:38 AM Pacific Time.
+
+# Sun, 11/23/2025: 4️⃣ More Days ➡️ Thanksgiving Day
+
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
 > 🗣️ Epstein files are out. > The aristocrats are exposing each other.<br/>
 > 🛩️ The US is about to air-strike Venezuela.<br/>
 > 🕊️ The Russia-Ukraine War is ending.
+
+ナルシ族 (= Scammers) | Non-ナルシ族
+-- | --
+Working toward their missionaries | Working on getting/staying healthy
+Running around | Running stings
+Leave their DNAs. Leave those DNAs. | Leave their DNAs. Stay with those DNAs.
+Feel-good系 | Get-educated系
 
 > [!IMPORTANT]
 > * In the end, it's about whose DNAs win.
