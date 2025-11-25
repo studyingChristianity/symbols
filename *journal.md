@@ -2,6 +2,8 @@
 
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
+> 📄 [US push for Russia-Ukraine peace deal gains momentum as attacks on Kyiv kill 7](https://apnews.com/article/russia-ukraine-war-peace-plan-trump-80f3f5d57c32cc7b91778fdb6b086af9)
+>
 
 ナルシ族 (= Scammers) | Non-ナルシ族
 -- | --
