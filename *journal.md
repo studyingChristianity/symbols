@@ -1,3 +1,21 @@
+# Wed, 11/26/2025: 1️⃣ More Days ➡️ Thanksgiving Day
+
+>[!NOTE]
+> 💥 What's going on in the world:<br/>
+> 
+
+ナルシ族 (= Scammers) | Non-ナルシ族
+-- | --
+Working toward their missionaries | Working on getting/staying healthy
+Running around | Running stings
+Leave their DNAs. Leave those DNAs. | Leave their DNAs. Stay with those DNAs.
+Feel-good系 | Get-educated系
+
+> [!IMPORTANT]
+> * In the end, it's about whose DNAs win.
+> * Saturn goes direct on Thursday, November 27, 2025 at ~7:51 PM Pacific Time.
+> * Mercury goes direct on Saturday, November 29, 2025 at ~9:38 AM Pacific Time.
+
 # Tue, 11/25/2025: 2️⃣ More Days ➡️ Thanksgiving Day
 
 >[!NOTE]
@@ -16,9 +34,6 @@ Feel-good系 | Get-educated系
 > * In the end, it's about whose DNAs win.
 > * Saturn goes direct on Thursday, November 27, 2025 at ~7:51 PM Pacific Time.
 > * Mercury goes direct on Saturday, November 29, 2025 at ~9:38 AM Pacific Time.
-
-
-
 
 # Mon, 11/24/2025: 3️⃣ More Days ➡️ Thanksgiving Day
 
