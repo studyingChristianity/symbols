@@ -2,7 +2,7 @@
 
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
-> 
+> 🔋 [Face to Face: Snoop Dogg Meets Tupac’s Killer](https://www.msn.com/en-us/entertainment/news/face-to-face-snoop-dogg-meets-tupac-s-killer/vi-AA1L1va6?ocid=socialshare)
 
 ナルシ族 (= Scammers) | Non-ナルシ族
 -- | --
