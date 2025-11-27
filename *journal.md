@@ -2,6 +2,7 @@
 
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
+> 🗡️ [Venezuela’s president waves sword as he vows to defend country from US](https://www.independent.co.uk/news/world/americas/venezuela-trump-maduro-sword-b2872742.html)<br/>
 > 🔋 [Face to Face: Snoop Dogg Meets Tupac’s Killer](https://www.msn.com/en-us/entertainment/news/face-to-face-snoop-dogg-meets-tupac-s-killer/vi-AA1L1va6?ocid=socialshare)
 
 ナルシ族 (= Scammers) | Non-ナルシ族
