@@ -1,3 +1,36 @@
+# Thu, 11/27/2025: 🦃 Thanksgiving Day
+
+ナルシ族 (= Scammers) | Non-ナルシ族
+-- | --
+Working toward their missionaries | Working on getting/staying healthy
+Running around | Running stings
+Leave their DNAs. Leave those DNAs. | Leave their DNAs. Stay with those DNAs.
+Feel-good系 | Get-educated系
+
+> [!IMPORTANT]
+> * In the end, it's about whose DNAs win.
+> * Saturn goes direct on Thursday, November 27, 2025 at ~7:51 PM Pacific Time.
+> * Mercury goes direct on Saturday, November 29, 2025 at ~9:38 AM Pacific Time.
+
+---
+
+The idea that Christians “do not like to take medications” is actually more of a stereotype.
+
+1. **Faith in Divine Healing**:
+   Some Christians believe that God can heal sickness directly through prayer or divine intervention. They may prefer prayer, laying on of hands, or other spiritual practices over medications. This is particularly common in Pentecostal or Charismatic groups.
+
+2. **Belief in Natural Remedies**:
+   Certain Christians may view medications as “unnatural” and prefer remedies from herbs, diet, or lifestyle changes. They may believe that God intended natural methods for health and healing.
+
+3. **Distrust of Modern Medicine**:
+   Some Christians, especially in more conservative or fundamentalist circles, may be skeptical of medical institutions or pharmaceuticals, fearing side effects, over-medication, or profit motives of the pharmaceutical industry.
+
+4. **Theological Beliefs About Suffering**:
+   Some may interpret suffering as spiritually meaningful, believing that enduring illness can strengthen faith or serve a higher purpose, and might therefore minimize medical intervention unless absolutely necessary.
+
+5. **Specific Denominational Teachings**:
+   For example, certain groups like Christian Scientists are officially taught to rely on prayer rather than medicine, though this is a minority position within Christianity.
+
 # Wed, 11/26/2025: 1️⃣ More Days ➡️ Thanksgiving Day
 
 >[!NOTE]
