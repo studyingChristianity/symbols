@@ -2,6 +2,8 @@
 
 >[!NOTE]
 > 💥 What's going on in the world:<br/>
+> 🗽 "America will never bend and never yield in the face of terror." - President Donald Trump (11/26/2025)<br/>
+> 🧨 [Afghan national in custody after shooting of 2 National Guard members near White House](https://apnews.com/article/national-guard-shooting-white-house-afghan-national-138fbe6872d7ac30b20973783b39002c)<br/>
 > 🗡️ [Venezuela’s president waves sword as he vows to defend country from US](https://www.independent.co.uk/news/world/americas/venezuela-trump-maduro-sword-b2872742.html)<br/>
 > 🔋 [Face to Face: Snoop Dogg Meets Tupac’s Killer](https://www.msn.com/en-us/entertainment/news/face-to-face-snoop-dogg-meets-tupac-s-killer/vi-AA1L1va6?ocid=socialshare)
 
