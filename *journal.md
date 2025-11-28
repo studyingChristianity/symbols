@@ -1,3 +1,7 @@
+# Fri, 11/28/2025
+
+ナルシ族's Day 1 after their missionary launches.
+
 # Thu, 11/27/2025: 🦃 Thanksgiving Day
 
 ナルシ族 (= Scammers) | Non-ナルシ族
