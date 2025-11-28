@@ -1,6 +1,4 @@
-# Fri, 11/28/2025
-
-ナルシ族's Day 1 after their missionary launches.
+# Fri, 11/28/2025: ナルシ族's Day 1 of New Life
 
 # Thu, 11/27/2025: 🦃 Thanksgiving Day
 
