@@ -1,5 +1,7 @@
 # Fri, 11/28/2025: ナルシ族's Day 1 of New Life
 
+[[Full AI Drama] ZERO -Politics and Religion-](https://youtu.be/KDNIT-Q2Pvc?si=E7o0GCRRiIJw2dG2) by NAKATA UNIVERSITY
+
 # Thu, 11/27/2025: 🦃 Thanksgiving Day
 
 ナルシ族 (= Scammers) | Non-ナルシ族
