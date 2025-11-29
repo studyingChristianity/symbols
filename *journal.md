@@ -14,6 +14,13 @@ Studying religions other than Christianity:
 * [【旧統一教会へ解散命令か②】自民党の最大派閥「清和会」と旧統一教会の関係に迫る！](https://youtu.be/HBtgQvfm8xA?si=qzeIuhkvu2QhVX2J)
 * [【総裁選2025】(Sanae Takaichi)](https://youtu.be/GSwVQjN9Sdw?si=tA1QLE5h3ZOHshWV)
 
+| ナルシ族 Features: |
+| -- |
+| ナルシ族 makes you feel you are wrong |
+| ナルシ族 makes you in a hurry to take the next action |
+| ナルシ族 makes you unable to think straight |
+| ナルシ族 activates the live-or-die neuropathway |
+
 # Fri, 11/28/2025: ナルシ族's Day 1 of New Life
 
 [[Full AI Drama] ZERO -Politics and Religion-](https://youtu.be/KDNIT-Q2Pvc?si=E7o0GCRRiIJw2dG2) by NAKATA UNIVERSITY
