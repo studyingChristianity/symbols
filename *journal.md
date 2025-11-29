@@ -1,3 +1,5 @@
+# Sat, 11/29/2025: ナルシ族's Day 2 of New Life
+
 # Fri, 11/28/2025: ナルシ族's Day 1 of New Life
 
 [[Full AI Drama] ZERO -Politics and Religion-](https://youtu.be/KDNIT-Q2Pvc?si=E7o0GCRRiIJw2dG2) by NAKATA UNIVERSITY
