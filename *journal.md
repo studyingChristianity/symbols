@@ -1,6 +1,6 @@
 # Sun 11/30/2025: ナルシ族's Day 3 of New Life
 
-## Methamphetamine Timeline
+## 💊 Methamphetamine Timeline
 
 | Period / Year      | Key Event                                  | People / Places                                                             | Impact                                                     |
 | ------------------ | ------------------------------------------ | --------------------------------------------------------------------------- | ---------------------------------------------------------- |
@@ -22,25 +22,25 @@
 
 # Sat, 11/29/2025: ナルシ族's Day 2 of New Life
 
-Studying religions other than Christianity:
-
-## Soka Gakkai = 創価学会
-* [【創価学会①】公明党を持つ宗教団体、そのルーツに中田が迫る](https://youtu.be/N2nhteFg_cI?si=CXGXYx3WhEIu48kt)
-* [【創価学会②】創価学会と公明党の歴史、現在の注目ポイントは？](https://youtu.be/cDcjNnMsd40?si=b0f077UngIX3fVn3)
-* [【伊佐進一】連立離脱！公明党に未来はあるのか？創価学会の「宗教とカネ」、池田大作氏の他界...新しい公明党とは！？ (Shinichi Isa)](https://youtu.be/vPX4Y6AHBj4?si=ni1BSpaS7tPHrWUK)
-
-## Unification Church = 統一教会
-* [【旧統一教会①】なぜ人々は信者になったのか？その教義と勧誘システムをついに解説](https://youtu.be/xaO_oaa_0JI?si=mnv__6uOwq48tlMm)
-* [[Former Unification Church ②] If you understand the history and characteristics of the sect, you ...](https://youtu.be/IR9Skc-_Ddo?si=tAGcUhPNhby1XWne)
-* [[Is the former Unification Church ordered to disband? ①] Has the LDP cut ties? Will dissolution s...](https://youtu.be/x1wIDXAXFAM?si=esS-7eaSbiBfq0Te)
-* [【旧統一教会へ解散命令か②】自民党の最大派閥「清和会」と旧統一教会の関係に迫る！](https://youtu.be/HBtgQvfm8xA?si=qzeIuhkvu2QhVX2J)
-
 | ナルシ族 Features: |
 | -- |
 | ナルシ族 makes you feel you are wrong |
 | ナルシ族 makes you in a hurry to take the next action |
 | ナルシ族 makes you unable to think straight |
 | ナルシ族 activates the live-or-die neuropathway |
+
+Studying religions other than Christianity:
+
+## 🛐 Soka Gakkai = 創価学会
+* [【創価学会①】公明党を持つ宗教団体、そのルーツに中田が迫る](https://youtu.be/N2nhteFg_cI?si=CXGXYx3WhEIu48kt)
+* [【創価学会②】創価学会と公明党の歴史、現在の注目ポイントは？](https://youtu.be/cDcjNnMsd40?si=b0f077UngIX3fVn3)
+* [【伊佐進一】連立離脱！公明党に未来はあるのか？創価学会の「宗教とカネ」、池田大作氏の他界...新しい公明党とは！？ (Shinichi Isa)](https://youtu.be/vPX4Y6AHBj4?si=ni1BSpaS7tPHrWUK)
+
+## 🛐 Unification Church = 統一教会
+* [【旧統一教会①】なぜ人々は信者になったのか？その教義と勧誘システムをついに解説](https://youtu.be/xaO_oaa_0JI?si=mnv__6uOwq48tlMm)
+* [[Former Unification Church ②] If you understand the history and characteristics of the sect, you ...](https://youtu.be/IR9Skc-_Ddo?si=tAGcUhPNhby1XWne)
+* [[Is the former Unification Church ordered to disband? ①] Has the LDP cut ties? Will dissolution s...](https://youtu.be/x1wIDXAXFAM?si=esS-7eaSbiBfq0Te)
+* [【旧統一教会へ解散命令か②】自民党の最大派閥「清和会」と旧統一教会の関係に迫る！](https://youtu.be/HBtgQvfm8xA?si=qzeIuhkvu2QhVX2J)
 
 # Fri, 11/28/2025: ナルシ族's Day 1 of New Life
 
