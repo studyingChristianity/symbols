@@ -12,7 +12,6 @@ Studying religions other than Christianity:
 * [[Former Unification Church ②] If you understand the history and characteristics of the sect, you ...](https://youtu.be/IR9Skc-_Ddo?si=tAGcUhPNhby1XWne)
 * [[Is the former Unification Church ordered to disband? ①] Has the LDP cut ties? Will dissolution s...](https://youtu.be/x1wIDXAXFAM?si=esS-7eaSbiBfq0Te)
 * [【旧統一教会へ解散命令か②】自民党の最大派閥「清和会」と旧統一教会の関係に迫る！](https://youtu.be/HBtgQvfm8xA?si=qzeIuhkvu2QhVX2J)
-* [【総裁選2025】(Sanae Takaichi)](https://youtu.be/GSwVQjN9Sdw?si=tA1QLE5h3ZOHshWV)
 
 | ナルシ族 Features: |
 | -- |
