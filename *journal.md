@@ -1,3 +1,25 @@
+# Sun 11/30/2025: ナルシ族's Day 3 of New Life
+
+## Methamphetamine Timeline
+
+| Period / Year      | Key Event                                  | People / Places                                                             | Impact                                                     |
+| ------------------ | ------------------------------------------ | --------------------------------------------------------------------------- | ---------------------------------------------------------- |
+| **1887**           | Amphetamine synthesized.                   | **Lazăr Edeleanu (Romania/Germany)**                                        | Foundation compound for meth.                              |
+| **1893**           | Methamphetamine first synthesized.         | **Nagayoshi Nagai (Japan)**                                                 | First creation; limited early use.                         |
+| **1919**           | Crystalline meth developed.                | **Akira Ogata (Japan)**                                                     | Smokable, more potent form emerges.                        |
+| **1930s**          | Sold as *Pervitin*.                        | **Temmler Works (Germany)**                                                 | Civilian stimulant; early addiction cases.                 |
+| **WWII (1940–45)** | Mass military distribution.                | **German Wehrmacht, Japanese Imperial Army, U.S. military**                 | ↑ endurance; widespread psychosis & dependency.            |
+| **1950s**          | Prescribed in U.S. for mood/weight issues. | **U.S. physicians; pharmaceutical firms**                                   | Increased civilian use & dependence.                       |
+| **1960s**          | “Speed” injection wave.                    | **U.S. West Coast counterculture (California)**                             | Severe health harms; meth subculture forms.                |
+| **1970**           | Controlled Substances Act → Schedule II.   | **U.S. Congress & DEA**                                                     | Medical restriction; illicit use grows.                    |
+| **1970s–80s**      | Small clandestine labs proliferate.        | **Outlaw motorcycle gangs (Hells Angels, etc.) — U.S. West & Midwest**      | Toxic labs, explosions, community danger.                  |
+| **1980s**          | Crystal “ice” emerges.                     | **Hawaii; Japanese trafficking routes**                                     | Smoking increases addiction intensity.                     |
+| **1990s**          | U.S. rural meth-lab boom.                  | **Missouri, Oklahoma, Oregon, California**                                  | Crime spikes; major environmental contamination.           |
+| **2000s**          | Mexican superlabs dominate supply.         | **Sinaloa Cartel; Michoacán & Sinaloa states (Mexico)**                     | Ultra-pure, low-cost meth floods North America.            |
+| **2005–10**        | Pseudoephedrine restricted.                | **U.S., Australia, EU governments**                                         | Small labs decline but cartel meth rises.                  |
+| **2010s**          | Very high-purity crystal becomes standard. | **Industrial-scale Mexican labs; U.S. West Coast cities**                   | ↑ psychosis, homelessness, violent incidents.              |
+| **2020s**          | Meth + fentanyl co-use crisis.             | **North America (especially U.S. West), Canadian West, parts of Australia** | Overdose deaths surge; severe mental health deterioration. |
+
 # Sat, 11/29/2025: ナルシ族's Day 2 of New Life
 
 Studying religions other than Christianity:
