@@ -1,5 +1,10 @@
 # Mon 12/1/2025: ナルシ族's Day 4 of New Life
 
+## Learnings from Saturn x Neptune in Pisces
+* Religious marketing comes and goes.
+* God's people made mistakes by talking to the others.
+* God is upset.
+* God's fighting for his/her existence.
 
 # Sun 11/30/2025: ナルシ族's Day 3 of New Life
 
