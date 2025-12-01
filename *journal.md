@@ -1,3 +1,6 @@
+# Mon 12/1/2025: ナルシ族's Day 4 of New Life
+
+
 # Sun 11/30/2025: ナルシ族's Day 3 of New Life
 
 ## 💊 Methamphetamine Timeline
