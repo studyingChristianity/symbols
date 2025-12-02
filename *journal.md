@@ -1,13 +1,3 @@
-# Mon 12/1/2025: ナルシ族's Day 4 of New Life
-
-## Learnings from Saturn x Neptune in Pisces
-* God's people, most of them being white, who discriminated the minorities were born controlled by their God. They were born less than human beings.
-* Religious marketing comes and goes.
-* God's people live only to get closer to their God.
-* It's God's people's mistake when they talk to others instead of talking to their God.
-* God is upset that he/she is running out of the resources.
-* God's fighting for his/her existence.
-
 # Sun 11/30/2025: ナルシ族's Day 3 of New Life
 
 ## 💊 Methamphetamine Timeline
