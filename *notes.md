@@ -1,3 +1,8 @@
+# 12/29/2025
+
+## 📰 News
+* [US pledges $2B for UN humanitarian aid as Trump slashes funding and warns agencies to ‘adapt or die’](https://apnews.com/article/trump-humanitarian-ocha-fletcher-united-nations-f32b1238acfdf6f44f61e991f8a5b8bc)
+
 # 12/28/2025
 
 ## 📰 News
