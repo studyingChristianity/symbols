@@ -5,6 +5,9 @@
 * [Chinese military to stage drills around Taiwan to warn ‘external forces’ after US, Japan tensions](https://apnews.com/article/china-taiwan-military-drills-japamn-37e2c674923fde3cb6b1a741c3e3fe0f)
 * 12/17/2025 [US announces $11bn weapons sale to Taiwan](https://www.bbc.com/news/articles/c7095g45p1po)
 
+### Vocab.
+* Ceasefire = n. a temporary suspension of fighting, typically one during which peace talks take place
+
 ## Others
 [【40代から手に入れる最高の生き方①】人生は40代からやりたい事が好きなようにできる！](https://www.youtube.com/watch?v=0R-yzyAY--M)
 
