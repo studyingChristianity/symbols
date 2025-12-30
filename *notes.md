@@ -2,6 +2,16 @@
 
 ## 📰 News
 * [US pledges $2B for UN humanitarian aid as Trump slashes funding and warns agencies to ‘adapt or die’](https://apnews.com/article/trump-humanitarian-ocha-fletcher-united-nations-f32b1238acfdf6f44f61e991f8a5b8bc)
+* [China flexes blockade capabilities near Taiwan on second day of military drills](https://apnews.com/article/china-military-drills-taiwan-us-japan-cd6600c23c206385822c733dc2016217)
+* The Gaza Peace Plan: [Trump hopes to reach phase two of Gaza ceasefire 'very quickly'](https://www.bbc.com/news/articles/cdj8jmxyzneo)
+* California New Laws in 2026: [Cats, guns and ICE: 7 new California laws in 2026](https://www.mercurynews.com/2025/12/29/cats-guns-and-ice-new-california-laws/)
+* Mt. View: [Mountain View and school district aim to fix crumbling creek banks](https://sanjosespotlight.com/mountain-view-and-school-district-aim-to-fix-crumbling-creek-banks/)
+
+## 📌 Others
+Body Keeps Score
+
+* Exhale > Heart slows down.
+* Inhale > Heart pumps up (more blood to heart).
 
 # 12/28/2025
 
