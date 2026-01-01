@@ -5,7 +5,7 @@
 
 ## 📌 Others
 
-* [六星占術 2026 占い](https://www.uchina-web.co.jp/uranai-select/rokuseisennjyutu/#keisan) : 天王星人マイナス（－）2026年 : 2026年は大きく広げるよりも、暮らしと気持ちを軽くするタイミングになりやすい時期。抱え込みすぎたものは、少しずつ手放してOKです。静かに足場を固めておくと、次の流れにスムーズにつながっていきます。
+* [六星占術 2026 占い](https://www.uchina-web.co.jp/uranai-select/rokuseisennjyutu/#keisan) : 天王星人マイナス（－）2026年 : 運命周期でいう「減退」の年にあたります。気持ちが揺れやすかったり、予定が思い通りに進みにくかったりと、ペースを落として過ごしたほうが安心な一年になりそうです。2026年は大きく広げるよりも、暮らしと気持ちを軽くするタイミングになりやすい時期。抱え込みすぎたものは、少しずつ手放してOKです。静かに足場を固めておくと、次の流れにスムーズにつながっていきます。
 ---
 
 Making new friends at 40 in 2026 is actually easier than it was five years ago because the "loneliness epidemic" has become so well-recognized that many new systems have been built specifically to solve it.
