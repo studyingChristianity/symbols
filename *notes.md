@@ -1,3 +1,8 @@
+12/31/2025
+
+## 📰 News
+* [Trump says he’s dropping push for National Guard in Chicago, LA and Portland, Oregon, for now](https://apnews.com/article/trump-national-guard-withdrawal-cities-6b7b02b832b24e17e6db483eb6c74425)
+
 # 12/29/2025
 
 ## 📰 News
