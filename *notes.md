@@ -1,4 +1,18 @@
-12/31/2025
+# 1/1/2026
+
+Making new friends at 40 in 2026 is actually easier than it was five years ago because the "loneliness epidemic" has become so well-recognized that many new systems have been built specifically to solve it.
+
+The secret in 2026 is moving away from "networking" and moving toward **"repeated unplanned interactions."** Here is the current roadmap for building a new social circle.
+
+### 1. Use the "Third Place" Apps
+
+In 2026, several apps have moved beyond the "swiping" model and focused on group-based, real-world activities:
+
+* **Timeleft:** This is huge right now. It signs you up for a dinner with five strangers at a local restaurant based on a personality quiz. It’s designed specifically to remove the "who do I talk to?" awkwardness.
+* **Bumble For Friends (BFF):** Now a standalone app, it’s the standard for 1-on-1 friend "dating." Pro-tip: Look for people who mention "activity-based" hangouts (hiking, gaming, coffee).
+* **Meetup:** Still the king for niche interests. In 2026, look for "Beginner" groups (Pottery, Pickleball, or Language Learning). Everyone there is equally bad at the hobby, which is a great bonding agent.
+
+# 12/31/2025
 
 ## 📰 News
 * [Trump says he’s dropping push for National Guard in Chicago, LA and Portland, Oregon, for now](https://apnews.com/article/trump-national-guard-withdrawal-cities-6b7b02b832b24e17e6db483eb6c74425)
