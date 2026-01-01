@@ -5,6 +5,10 @@
 
 ## 📌 Others
 
+* [六星占術 2026 占い](https://www.uchina-web.co.jp/uranai-select/rokuseisennjyutu/#keisan)
+
+---
+
 Making new friends at 40 in 2026 is actually easier than it was five years ago because the "loneliness epidemic" has become so well-recognized that many new systems have been built specifically to solve it.
 
 The secret in 2026 is moving away from "networking" and moving toward **"repeated unplanned interactions."** Here is the current roadmap for building a new social circle.
