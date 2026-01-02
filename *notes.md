@@ -1,3 +1,9 @@
+# 1/2/2026
+
+## 📰 News
+
+* [Elon Musk declares 'it is war' after 'Somali' TikToker said he may die](https://www.msn.com/en-us/news/us/elon-musk-declares-it-is-war-after-somali-tiktoker-said-he-may-die/ar-AA1TrsU7?uxmode=ruby&ocid=edgntpruby&pc=SCOODB&cvid=69566df00399421a8b38407645a6bc2c&ei=12)
+
 # 1/1/2026
 
 ## 📰 News
