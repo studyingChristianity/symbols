@@ -2,6 +2,7 @@
 
 ## 📰 News
 * [2025 in review: Silicon Valley’s state of housing and homelessness](https://sanjosespotlight.com/2025-in-review-silicon-valleys-state-of-housing-and-homelessness/)
+*  [Health subsidies expire, launching millions of Americans into 2026 with steep insurance hikes](https://apnews.com/article/affordable-care-act-health-subsidies-expire-35060610e82ca3257821c53f2a34ecf6)
 
 ## 📌 Others
 
