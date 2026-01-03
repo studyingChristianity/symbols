@@ -43,3 +43,54 @@ Oils and Fats | Oils from: Olive, Peanut, Puritan, Canola, Grape Seed<br/>Avocad
 | **Varenicline (Chantix)**               | Prescription      | Partial nicotinic agonist                  | Nausea, insomnia, vivid dreams          | 12 weeks (often extended to 24 weeks) | Reduces reward from smoking & cravings; top first-line therapy |
 | **Bupropion SR (Zyban)**                | Prescription      | Antidepressant                             | Dry mouth, insomnia, anxiety            | 7–12 weeks                            | Helps limit post-quit weight gain; avoid in seizure disorders  |
 | **Cytisine** (not FDA-approved in U.S.) | Varies by country | Partial nicotinic agonist                  | Nausea, stomach upset                   | 25-day course or extended protocols   | Widely used internationally; inexpensive                       |
+
+
+## タバコをやめた後に起こる利点
+
+**① 20分後**
+👉 **心拍数と血圧が下がり始める**
+体が「ニコチンなし」の状態に適応し始め、心臓への負担が軽くなります。
+
+---
+
+**② 8〜12時間後**
+👉 **血液中の一酸化炭素が減る**
+酸素を運ぶ力が回復し、体や脳に酸素が行き渡りやすくなります。
+
+---
+
+**③ 24時間後**
+👉 **心臓発作のリスクが下がり始める**
+血管が少しずつ正常に戻り始めます。
+
+---
+
+**④ 2〜3日後**
+👉 **味覚・嗅覚が良くなる**
+食べ物やにおいをよりはっきり感じられるようになります。
+
+---
+
+**⑤ 1〜2週間後**
+👉 **息切れしにくくなる**
+肺の働きが改善し、運動や階段が楽になります。
+
+---
+
+**⑥ 1か月後**
+👉 **咳や痰が減る**
+肺の自浄作用（汚れを外に出す力）が回復します。
+
+---
+
+**⑦ 3か月後**
+👉 **血液循環がかなり改善**
+手足が冷えにくくなり、体力も戻ってきます。
+
+---
+
+**⑧ 1年後**
+👉 **心臓病のリスクが約半分に**
+喫煙者と比べて大きな差が出てきます。
+
+---
