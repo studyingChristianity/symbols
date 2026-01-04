@@ -1,3 +1,9 @@
+# 1/3/2026
+
+## 📰 News
+
+* [Venezuela live updates: Nicolás Maduro arrives in New York after capture by US forces](https://apnews.com/live/trump-us-venezuela-updates-01-03-2026)
+
 # 1/2/2026
 
 ## 📰 News
