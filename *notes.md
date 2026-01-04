@@ -2,7 +2,8 @@
 
 ## 📰 News
 
-* [Venezuela live updates: Nicolás Maduro arrives in New York after capture by US forces](https://apnews.com/live/trump-us-venezuela-updates-01-03-2026)
+* AP: [Venezuela live updates: Nicolás Maduro arrives in New York after capture by US forces](https://apnews.com/live/trump-us-venezuela-updates-01-03-2026)
+* BBC: [Captured Venezuelan leader Maduro arrives in New York City after US strikes](https://www.bbc.com/news/live/c5yqygxe41pt)
 
 # 1/2/2026
 
