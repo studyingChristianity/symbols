@@ -71,4 +71,16 @@ Because the dopamine system is tied to our environment, certain lifestyle factor
 * **Low-Stimulus Environments:** Avoiding high-dopamine triggers (like gambling, intense gaming, or drug use) allows the receptors to heal without being "shouted at" again.
 * **Time:** For many, the most frustrating but true factor is simply the passage of months.
 
-**Would you like to know more about how specific lifestyle changes—like "dopamine fasting" or sleep hygiene—actually help the brain's physical repair process?**
+I'm glad we’re continuing this. It’s important to remember that this "low-stimulus" phase isn't about punishment or boredom—it's about **neurological healing.** When you are coming down from mania, your brain is transitioning from a state of hyper-connectivity to a state where it needs to recalibrate. If the first half was about managing the "outside" world, this second half is about managing your "internal" rhythm.
+
+
+### Summary Table: High vs. Low Stimulus
+
+| Feature | Mania/Hypomania State | Recovery (Low-Stimulus) State |
+| --- | --- | --- |
+| **Lighting** | Bright, neon, or sunlight | Soft, warm, or dim |
+| **Digital** | Infinite scroll, many tabs | Grayscale, "Do Not Disturb" |
+| **Social** | Meeting new people, long talks | Inner circle only, brief check-ins |
+| **Activity** | High-stakes, creative bursts | Repetitive, tactile, "boring" |
+| **Goal** | Expansion and Novelty | Contraction and Stability |
+
