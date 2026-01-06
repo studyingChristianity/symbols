@@ -1,3 +1,10 @@
+# 1/5/2026
+
+## 📰 News
+
+* [Maduro says ‘I was captured’ as he pleads not guilty to drug trafficking charges](https://apnews.com/article/maduro-venezuela-trump-criminal-case-131f59e517cc8314a53c8dace230d328)
+
+
 # 1/3/2026
 
 ## 📰 News
