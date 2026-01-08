@@ -19,6 +19,63 @@
 
 強い空腹感 味覚や嗅覚が戻り、ご飯が美味しく感じられるため、つい食べすぎてしまうことがあります。
 
+
+Congratulations on reaching Day 5! Since you are moving past the physical withdrawal peak, it helps to have a roadmap of what to expect over the next 90 days.
+
+The journey of quitting is often described as moving from **"Physical Battle"** to **"Psychological Adjustment"** to **"New Normal."**
+
+---
+
+## The 3-Month Quitting Roadmap
+
+| Phase | Timeline | What it feels like (The Challenges) | What’s happening in your body (The Wins) |
+| --- | --- | --- | --- |
+| **Phase 1: The Peak** | **Week 1** | Intense cravings, irritability, "brain fog," and sleep changes. You might feel "empty." | Nicotine is 100% gone. Carbon monoxide levels are normal. Taste and smell improve. |
+| **Phase 2: The Mental Test** | **Weeks 2 - 4** | Cravings are less frequent but can be "sharp." You may face the "1-cigarette trap" thoughts. | Lung function begins to improve. Phlegm clears out. Cilia (tiny hairs in lungs) start moving again. |
+| **Phase 3: The Habit Reform** | **Month 2** | Emotional triggers (stress, drinking, coffee) become the main hurdle. Boredom might trigger a desire to smoke. | Circulation improves significantly. Walking and exercise feel noticeably easier. |
+| **Phase 4: The New Normal** | **Month 3** | Cravings are rare. You might go hours or days without thinking about smoking at all. | Risk of heart attack drops. Lung cilia are fully recovered. Psychological "freedom" begins. |
+
+---
+
+## Detailed Breakdown of Each Month
+
+### Month 1: The Survival Month
+
+This is the hardest month. Your brain is literally rewiring its dopamine receptors.
+
+* **The "Quitters Flu":** You might experience coughing, sore throats, or mild cold symptoms as your lungs clear out tar.
+* **Emotional Rollercoaster:** You may feel sudden sadness or anger. This is your brain mourning the "loss" of its chemical crutch.
+* **Strategy:** Drink massive amounts of water and prioritize sleep. Avoid heavy alcohol, as it is the #1 cause of relapse in Month 1.
+
+### Month 2: The "Routine" Month
+
+The physical withdrawal is over, but the **habitual withdrawal** remains.
+
+* **The Trap:** You might feel so good that you think, *"I'm cured! I can have just one at this party."* This is a lie your brain tells you.
+* **Weight Management:** You might notice an increased appetite. This is because nicotine no longer suppresses your metabolism and hunger.
+* **Strategy:** Find a new hobby for your hands (stress ball, sketching, or even a mobile game) to fill the "ritual" gaps.
+
+### Month 3: The Transformation Month
+
+By now, you have saved a significant amount of money and your breath smells fresh.
+
+* **The Fade:** The "urge" becomes more of a "memory." You see someone smoking and feel pity rather than envy.
+* **Physical Peak:** You will likely notice you don't get winded going up stairs anymore. Your skin will look more hydrated and less "grey."
+* **Strategy:** Celebrate your 90-day milestone! Treat yourself to something using the money you saved from about 90 packs of cigarettes.
+
+---
+
+### A Note on the "Rule of Threes"
+
+Most quitters find that the urge to smoke hits hardest at:
+
+* **3 days** (Nicotine withdrawal peak)
+* **3 weeks** (The "honeymoon" phase ends, reality sets in)
+* **3 months** (Overconfidence leads to a "just one" mistake)
+
+**Would you like me to calculate how much money you’ve saved so far or help you come up with a 3-month reward goal?**
+
+
 # 1/5/2026
 
 ## 📰 News
