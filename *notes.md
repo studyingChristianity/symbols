@@ -1,7 +1,7 @@
 # 1/8/2026
 
 ## 📰 News
-
+* [Minneapolis protesters vent their outrage after an ICE officer kills a woman](https://apnews.com/article/minnesota-immigration-enforcement-crackdown-woman-shot-5158ce0838305b491c95db97b970cd03)
 * [2 killed in shooting in Mormon church parking lot in Salt Lake City](https://apnews.com/article/utah-church-shooting-funeral-salt-lake-3e97bd92c89629f65e7db9572ead2643)
 * [House takes step toward extending Affordable Care Act subsidies, overpowering GOP leadership](https://apnews.com/article/affordable-care-act-subsidies-aca-84607bbaee9bc782d0b685eadba75303)
 
