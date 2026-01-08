@@ -1,3 +1,9 @@
+# 1/8/2026
+
+## 📰 News
+
+* [2 killed in shooting in Mormon church parking lot in Salt Lake City](https://apnews.com/article/utah-church-shooting-funeral-salt-lake-3e97bd92c89629f65e7db9572ead2643)
+
 # 1/5/2026
 
 ## 📰 News
