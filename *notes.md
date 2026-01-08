@@ -6,6 +6,19 @@
 * [2 killed in shooting in Mormon church parking lot in Salt Lake City](https://apnews.com/article/utah-church-shooting-funeral-salt-lake-3e97bd92c89629f65e7db9572ead2643)
 * [House takes step toward extending Affordable Care Act subsidies, overpowering GOP leadership](https://apnews.com/article/affordable-care-act-subsidies-aca-84607bbaee9bc782d0b685eadba75303)
 
+## 📌 Others
+
+### 禁煙5日目に出やすい症状
+この時期は、身体的な依存（ニコチン切れ）から**精神的な依存（習慣や口寂しさ）**への移行期です。
+
+強烈な眠気、または不眠 脳がニコチン刺激のない状態に慣れようとして、自律神経が不安定になりやすい時期です。
+
+イライラ・集中力の低下 「一本吸えば楽になるのに」という思考が頭をよぎり、脳があなたを誘惑してきます。
+
+痰（たん）や咳が出る 肺の線毛運動が回復し、溜まっていた汚れを排出しようとする「お掃除」が始まっています。
+
+強い空腹感 味覚や嗅覚が戻り、ご飯が美味しく感じられるため、つい食べすぎてしまうことがあります。
+
 # 1/5/2026
 
 ## 📰 News
