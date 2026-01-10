@@ -1,5 +1,11 @@
 # 1/10/2026
 
+## 📰 News
+
+* [Anti-ICE protesters assemble across the US after shootings in Minneapolis and Portland, Oregon](https://apnews.com/article/ice-protests-shootings-minneapolis-portland-a5922ea4b414afa485f324c0adf1d232)
+
+---
+
 禁煙7日目、まずは1週間達成おめでとうございます！この1週間は、心身ともに本当にキツかったのではないでしょうか。
 
 7日目（1週間）というのは、禁煙における**「大きな転換点」**です。今感じていること、そしてこれから起こることを整理しました。
