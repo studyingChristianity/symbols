@@ -1,4 +1,65 @@
-# 1/25/2025
+# 1/26/2026
+
+## 🦷 Day 7 after pulling 4 teeth
+
+**Normal / expected**
+
+* Mild soreness or tenderness
+* Reduced but lingering swelling
+* Jaw stiffness / limited opening
+* Pink or mildly red gums
+* White/yellow film in socket (healing tissue)
+* Mild hot/cold sensitivity
+* Occasional bad taste
+* Fatigue
+
+**Watch but usually okay**
+
+* Intermittent throbbing pain
+* Mild ear pain or headache
+* Slight oozing if irritated
+
+**Not normal — call dentist**
+
+* Severe or worsening pain (esp. radiating to ear/jaw)
+* Pain that worsens after initial improvement
+* Persistent foul odor/taste
+* Visible bone in socket
+* Pus or thick discharge
+* Increasing swelling after day 5–6
+* Fever or chills
+* Trouble swallowing or breathing (urgent)
+
+**Helpful care**
+
+* Gentle warm saltwater rinses
+* Soft foods; chew away from sockets
+* OTC pain meds if allowed
+* Brush carefully, avoid sockets
+* Stay hydrated
+
+## ⏱️ When things feel “normal” again
+
+* **7–10 days:**
+  Pain and swelling mostly gone; still some tenderness and jaw stiffness.
+* **10–14 days:**
+  Feels *mostly normal* day-to-day. Chewing is easier, minimal soreness.
+* **2–3 weeks:**
+  Gums largely healed; little to no discomfort.
+* **4–6 weeks:**
+  Sockets filled in; jaw and bite feel normal again.
+* **2–3 months:**
+  Bone fully remodels underneath (you won’t feel this).
+
+### 😌 What “normal” feels like at each stage
+
+* **By 10–14 days:** no constant pain, no bad taste, swelling gone
+* **By ~3 weeks:** eating normally without thinking about it
+* **By ~1 month:** you forget you had teeth pulled
+
+> Because you had **4 teeth removed**, it’s normal to be on the **slower end** of these ranges—especially if wisdom teeth were involved.
+
+# 1/25/2026
 
 ## 📰 News
 
