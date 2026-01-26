@@ -19,6 +19,60 @@
 * **睡眠の質の向上と肌ツヤの改善**
 血行が良くなることで肌のトーンが明るくなり、深い睡眠が取れるようになるため、朝の目覚めがスッキリしてきます。
 
+---
+
+## Efforts to end the Russia-Ukraine war — and why it hasn’t ended yet, even though talks continue:
+
+* [AP News](https://apnews.com/article/438412639e3a73cab0abf9d109519720?utm_source=chatgpt.com)
+* [Al Jazeera](https://www.aljazeera.com/news/liveblog/2026/1/24/live-kyiv-kharkiv-come-under-attack-amid-russia-ukraine-peace-talks?utm_source=chatgpt.com)
+* [Reuters](https://www.reuters.com/world/pope-leo-says-civilians-ukraine-are-suffering-calls-war-end-2026-01-25/?utm_source=chatgpt.com)
+* [Al Jazeera](https://www.aljazeera.com/news/liveblog/2025/12/15/russia-ukraine-war-live-zelenskyy-us-envoys-to-resume-berlin-talks?utm_source=chatgpt.com)
+* [Reuters](https://www.reuters.com/world/europe/why-is-fate-donetsk-region-sticking-point-talks-ending-war-ukraine-2025-12-03/?utm_source=chatgpt.com)
+
+### 🧠 **1. There’s *no peace deal yet***
+
+Despite ongoing negotiations, **no formal agreement to end the war has been signed**. Recent peace talks — including rare direct discussions involving Ukraine, Russia, and U.S. mediators in Abu Dhabi — **ended without a breakthrough**. Officials said they may meet again soon, but major disagreements remain. ([AP News][1])
+
+### 📌 **2. Core sticking points blocking peace:**
+
+**Territorial control:** Russia wants guarantees about territories it occupies (including parts of Donetsk, Luhansk, Kherson, and Zaporizhzhia), which Ukraine strongly rejects because it insists on its **sovereignty and territorial integrity**. ([Reuters][2])
+**Security guarantees:** Ukraine wants robust security guarantees from allies (e.g., the U.S.) in any peace framework, and these are still being negotiated. ([PBS][3])
+**Nuclear plant & other technical issues:** Questions like the status and monitoring of the Russian-occupied **Zaporizhzhia nuclear plant** remain unresolved. ([PBS][3])
+
+### 🤝 **3. Peace proposals exist — but not agreed**
+
+U.S. and Ukrainian negotiators have hammered out peace plans and security documents that Ukraine says are ready to be signed, but **they still await formal dates and approval from legislatures** (e.g., U.S. Congress and Ukrainian Parliament). ([AP News][1])
+Russia has looked at some proposals but insists on **territorial and other concessions** before stopping its offensive. This is one of the reasons no deal has been finalized. ([Межа. Новини України.][4])
+
+### 🪖 **4. War continues even while talks happen**
+
+Negotiations have often taken place **amid active fighting and major Russian attacks**, including strikes on Ukrainian power grids and infrastructure during talks. This undercuts confidence and makes compromise politically harder for Ukraine. ([AP News][5])
+
+### 🌍 **5. International diplomacy continues but is complicated**
+
+* The **U.N. and EU** have passed resolutions supporting Ukraine’s sovereignty and calling for peace negotiations and ceasefires. ([Consilium][6])
+* Some diplomatic efforts (summits, trilateral talks involving the U.S.) aim to build frameworks, but they **have not reached a final peace agreement.** ([Wikipedia][7])
+
+### 🧨 **6. Why peace is so hard right now**
+
+* **Incompatible war aims:** Russia and Ukraine disagree on fundamental issues (especially who controls what territory).
+* **Domestic politics:** Leaders in both countries face political pressures that limit compromise.
+* **Security fears:** Ukraine won’t easily give up territory without guarantees it won’t be attacked again.
+
+### 🪧 **Bottom line:**
+
+There *isn’t* a peace deal that ends the war yet. Multiple rounds of talks have narrowed some differences and produced draft plans, but the sides still cannot agree on core issues like territorial control and security guarantees. Meanwhile, the conflict continues on the ground, making negotiations more difficult. Peace efforts are ongoing and may eventually lead to a ceasefire or agreement, **but it’s far from finished and likely won’t end the war immediately**. ([AP News][1])
+
+If you want, I can summarize the main proposals being discussed (what Russia wants vs. what Ukraine wants) — just ask!
+
+[1]: https://apnews.com/article/438412639e3a73cab0abf9d109519720?utm_source=chatgpt.com "US security agreement for Ukraine is '100% ready' to be signed, Zelenskyy says"
+[2]: https://www.reuters.com/world/europe/why-is-fate-donetsk-region-sticking-point-talks-ending-war-ukraine-2025-12-03/?utm_source=chatgpt.com "Why are Ukraine and Russia not able to agree on the fate of Donetsk?"
+[3]: https://www.pbs.org/newshour/world/3-key-issues-that-remain-unresolved-in-u-s-ukraine-talks-on-ending-russias-war?utm_source=chatgpt.com "3 key issues that remain unresolved in U.S.-Ukraine talks on ending Russia's war | PBS News"
+[4]: https://mezha.net/eng/bukvy/putin-confirmed-the-conditions-for-ending-the-war-with-ukraine-and-commented-on-the-negotiations-in-istanbul/?utm_source=chatgpt.com "Putin confirmed the conditions for ending the war with Ukraine and commented on the negotiations in Istanbul. | Ukraine news - #Mezha"
+[5]: https://apnews.com/article/cc5f4542e0a5d3c05b948d4e0c64984f?utm_source=chatgpt.com "Russia batters Ukraine's power grid again as officials seek momentum in US-led peace talks"
+[6]: https://www.consilium.europa.eu/en/press/press-releases/2025/12/19/european-council-18-december-2025-ukraine/?utm_source=chatgpt.com "European Council, 18 December 2025, Ukraine - Consilium"
+[7]: https://en.wikipedia.org/wiki/2025_London_Summit_on_Ukraine?utm_source=chatgpt.com "2025 London Summit on Ukraine"
+
 
 # 1/10/2026
 
