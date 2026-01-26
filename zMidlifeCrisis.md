@@ -93,7 +93,9 @@ Turns out they were.
 Mid-life attention shifts from:
 
 > **status → substance**
+> 
 > **impressing → understanding**
+> 
 > **noise → clarity**
 
 And that’s not giving up — it’s leveling up.
