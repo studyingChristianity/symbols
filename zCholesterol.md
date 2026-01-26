@@ -31,6 +31,41 @@ Oils and Fats | Oils from: Olive, Peanut, Puritan, Canola, Grape Seed<br/>Avocad
 
 # 3. 🚭 Quit smoking 🚭
 
+### Timeline for cholesterol changes after quitting
+
+* **Within 2–3 weeks**
+
+  * Your **HDL (“good”) cholesterol starts to rise**.
+  * Blood vessels function better, which helps cholesterol metabolism.
+
+* **After ~1–3 months**
+
+  * Measurable improvement in cholesterol balance for many people.
+  * LDL (“bad”) cholesterol may begin to decrease, especially if diet/activity are stable.
+
+* **After ~3–6 months**
+
+  * **Most of the smoking-related cholesterol effects have normalized**.
+  * HDL is often significantly higher than when you were smoking.
+
+* **By ~6–12 months**
+
+  * Your cholesterol profile usually reflects your **true baseline**, meaning:
+
+    * Smoking is no longer influencing the blood test
+    * Levels now depend mainly on **genetics, diet, weight, exercise, and other health factors**
+
+### Important nuance
+
+* Smoking mainly **lowers HDL and damages how cholesterol behaves**, rather than massively raising total cholesterol.
+* So quitting helps more with **quality and balance** than dramatic total-number drops.
+* If cholesterol is still high after 6–12 months, smoking likely wasn’t the main cause.
+
+### When should you test?
+
+* **Best timing:** **3–6 months after quitting** for a meaningful comparison
+* **Ideal “fully clear” result:** **6–12 months smoke-free**
+
 ## **Smoking-Cessation Medications Comparison Table**
 
 | **Medication / Product** | **OTC / Rx** | **Type** | **Common Side Effects** | **Recommended Duration** | **Notes** |
