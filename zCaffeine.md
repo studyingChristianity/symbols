@@ -112,3 +112,43 @@ This is why afternoon caffeine can **hurt sleep** even if you “feel fine.”
 | **Decaf coffee**                          | 8 oz                  | **2–5**       |
 | **Herbal tea (rooibos, chamomile, etc.)** | 8 oz                  | **0**         |
 | **Water / juice**                         | any                   | **0**         |
+
+
+## Why switching to mostly tea often works well 🍵
+
+### 1. Gentler caffeine = smoother energy
+
+Coffee and Diet Coke hit fast. Tea tends to:
+
+* have **less caffeine per serving**
+* release it **more gradually**
+
+Result: fewer jitters, less anxiety, fewer crashes.
+
+*(Tea contains L-theanine, which smooths caffeine’s effect — coffee doesn’t.)*
+
+### 2. Better sleep without trying
+
+Even if you “feel fine” with afternoon coffee/soda, caffeine lingers.
+With tea, many people notice:
+
+* easier falling asleep
+* deeper sleep
+* less wired-at-night feeling
+
+This alone can be life-changing.
+
+### 3. Less acid, less stomach irritation
+
+* Coffee → increases stomach acid
+* Diet Coke → acidic + carbonated
+
+Tea (especially green, oolong, rooibos) is usually **much easier on the gut**.
+
+### 4. Extra health perks
+
+Tea gives you:
+
+* antioxidants (polyphenols)
+* possible heart & metabolic benefits
+* no sugar, no sweeteners, no carbonation
