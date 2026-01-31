@@ -1,7 +1,9 @@
 # 1/30/2026
 
 * [US approves major new arms sales to Israel worth $6.67 billion and to Saudi Arabia worth $9 billion](https://apnews.com/article/israel-arms-sale-trump-iran-tensions-e73d1fe40974abca838a1a08590934d3)
-* 
+* [Watch: Aerial footage of stunning property that sold for $63 million in Santa Clara County](https://www.mercurynews.com/2026/01/30/watch-aerial-footage-of-stunning-santa-clara-county-ranch-that-sold-for-63-million/)
+* [San Jose mayor jumps into governor’s race](https://sanjosespotlight.com/san-jose-mayor-jumps-into-governors-race/)
+* [Silicon Valley groups help nonprofits navigate federal changes](https://sanjosespotlight.com/silicon-valley-groups-help-nonprofits-navigate-federal-changes/)
 
 
 # 1/27/2026
