@@ -1,3 +1,9 @@
+# 1/30/2026
+
+* [US approves major new arms sales to Israel worth $6.67 billion and to Saudi Arabia worth $9 billion](https://apnews.com/article/israel-arms-sale-trump-iran-tensions-e73d1fe40974abca838a1a08590934d3)
+* 
+
+
 # 1/27/2026
 
 ## 緑茶・ウーロン茶・ルイボスティーの利点比較表
