@@ -4,7 +4,8 @@
 * [Watch: Aerial footage of stunning property that sold for $63 million in Santa Clara County](https://www.mercurynews.com/2026/01/30/watch-aerial-footage-of-stunning-santa-clara-county-ranch-that-sold-for-63-million/)
 * [San Jose mayor jumps into governor’s race](https://sanjosespotlight.com/san-jose-mayor-jumps-into-governors-race/)
 * [Silicon Valley groups help nonprofits navigate federal changes](https://sanjosespotlight.com/silicon-valley-groups-help-nonprofits-navigate-federal-changes/)
-
+* [
+‘This can’t be left to individual families’: how social media ban could affect under-16s](https://www.theguardian.com/media/2026/jan/29/social-media-ban-under-16s-uk-australia-views)
 
 # 1/27/2026
 
