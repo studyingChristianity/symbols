@@ -4,6 +4,23 @@
 * ✏️ [What to know about the civil rights charges Don Lemon faces for covering church protest in Minnesota](https://apnews.com/article/minneapolis-church-ice-protest-lemon-charges-arrests-8f09050ecabb2239b837d3f08c272f0d)
 * ✏️ [Undercover investigation of Meta heads to trial in New Mexico in first stand-alone case by state](https://apnews.com/article/meta-facebook-trial-new-mexico-social-trial-facebook-instagram-whatsapp-d8b812efd001e5cabbef9e1a47143226)
 
+---
+
+# Drone strikes
+
+**Drone strikes** began to be used in a military context in a serious way in the **early 2000s**. Here’s a brief timeline:
+
+1. **1970s–1990s:** The U.S. and Israel experimented with uncrewed aircraft for reconnaissance. Early drones were mostly for **surveillance**, not attacks.
+
+2. **Early 2000s (Afghanistan, Iraq):** Armed drones, like the **MQ-1 Predator**, started being fitted with missiles (e.g., Hellfire) for targeted strikes. The first widely reported drone strike against a militant target was around **2001–2002** in Afghanistan, soon after 9/11.
+
+3. **Mid‑2000s:** Drone use expanded to **Pakistan, Yemen, and Somalia**, targeting al-Qaeda and affiliated groups. This is when the technology became central to counterterrorism operations.
+
+4. **2010s–present:** Drone strikes became more common globally, including by other countries like Turkey, Israel, and China. They’ve also evolved to include **smaller tactical drones** and **long-range surveillance/strike platforms**.
+
+So, while drones existed for decades, **armed drone strikes in combat really started in the early 2000s**, driven by counterterrorism needs and advances in remote control and precision weapons.
+
+
 # 1/30/2026
 
 * [US approves major new arms sales to Israel worth $6.67 billion and to Saudi Arabia worth $9 billion](https://apnews.com/article/israel-arms-sale-trump-iran-tensions-e73d1fe40974abca838a1a08590934d3)
