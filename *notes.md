@@ -1,3 +1,9 @@
+# 2/1/2026
+
+* [Johnson says no quick House vote to end partial shutdown and blames Democrats for their ICE demands](https://apnews.com/article/shutdown-ice-trump-democrats-demands-johnson-funding-d90a24827e48c18fc1c14c76adfecda6)
+* ✏️ [What to know about the civil rights charges Don Lemon faces for covering church protest in Minnesota](https://apnews.com/article/minneapolis-church-ice-protest-lemon-charges-arrests-8f09050ecabb2239b837d3f08c272f0d)
+* ✏️ [Undercover investigation of Meta heads to trial in New Mexico in first stand-alone case by state](https://apnews.com/article/meta-facebook-trial-new-mexico-social-trial-facebook-instagram-whatsapp-d8b812efd001e5cabbef9e1a47143226)
+
 # 1/30/2026
 
 * [US approves major new arms sales to Israel worth $6.67 billion and to Saudi Arabia worth $9 billion](https://apnews.com/article/israel-arms-sale-trump-iran-tensions-e73d1fe40974abca838a1a08590934d3)
