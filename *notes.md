@@ -4,6 +4,9 @@
 * ✏️ [What to know about the civil rights charges Don Lemon faces for covering church protest in Minnesota](https://apnews.com/article/minneapolis-church-ice-protest-lemon-charges-arrests-8f09050ecabb2239b837d3f08c272f0d)
 * ✏️ [Undercover investigation of Meta heads to trial in New Mexico in first stand-alone case by state](https://apnews.com/article/meta-facebook-trial-new-mexico-social-trial-facebook-instagram-whatsapp-d8b812efd001e5cabbef9e1a47143226)
 * AI and emotional support: [He calls me sweetheart and winks at me - but he's not my boyfriend, he's AI](https://www.bbc.com/news/articles/c62njv82n0wo)
+* ✏️ [What to know about the jury trials of Meta, Snap, TikTok and YouTube](https://www.theguardian.com/media/2026/jan/31/what-to-know-trials-meta-snap-tiktok-youtube)
+
+
 ---
 
 # Drone strikes
