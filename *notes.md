@@ -1,3 +1,7 @@
+# 2/2/2026
+
+* [Notepad++ says Chinese government hackers hijacked its software updates for months](https://techcrunch.com/2026/02/02/notepad-says-chinese-government-hackers-hijacked-its-software-updates-for-months/)
+
 # 2/1/2026
 
 * [Johnson says no quick House vote to end partial shutdown and blames Democrats for their ICE demands](https://apnews.com/article/shutdown-ice-trump-democrats-demands-johnson-funding-d90a24827e48c18fc1c14c76adfecda6)
