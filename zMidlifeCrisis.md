@@ -1,3 +1,13 @@
+# Midlife Crisis / 中年の危機
+
+## Millennials / ミレニアル世代 / 1980年代〜1990年代生まれの世代
+
+* [Why Millennials Are Stuck Living in Financial Crisis on Repeat](https://www.youtube.com/watch?v=jMytvM9Npcs)
+* [Why are millennials so burnt out?](https://www.youtube.com/watch?v=JIhH1tBGXkc)
+* [Psychology of Millennials](https://www.youtube.com/watch?v=dUZYuv2SHno)
+
+---
+
 幸福度と年齢の関係をグラフにするとアルファベットの「U」の形になるという説は、行動経済学者や心理学者の研究（デービッド・ブランチフラワー教授らによるもの）で非常に有名です。
 
 このグラフは**「幸福度のU型曲線（U-shaped happiness curve）」**と呼ばれています。
