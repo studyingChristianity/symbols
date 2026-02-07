@@ -4,6 +4,7 @@
 
 * [Why Millennials Are Stuck Living in Financial Crisis on Repeat](https://www.youtube.com/watch?v=jMytvM9Npcs)
 * [Why are millennials so burnt out?](https://www.youtube.com/watch?v=JIhH1tBGXkc)
+* [Why Millennials Are Losing Interest In Everything](https://www.youtube.com/watch?v=5ncWHvkUO7Y)
 * [Psychology of Millennials](https://www.youtube.com/watch?v=dUZYuv2SHno)
 
 ---
