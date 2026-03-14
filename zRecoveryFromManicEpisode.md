@@ -1,3 +1,44 @@
+## Highest risk for another episode within first 6 months after a manic episode
+
+That 6-month window is often called the **"fragile period"** of recovery. While it feels like the storm has passed once the mania subsides, the brain is actually in a highly vulnerable state of recalibration.
+
+Statistically, about **25% to 30%** of people will experience a relapse within those first 6 months, and nearly **50%** within the first year. Here is why that specific window is so high-risk:
+
+### 1. The "Crash" into Depression
+
+Mania is metabolically and neurologically exhausting. Once the high ends, the brain’s neurotransmitters (like dopamine and serotonin) often "bottom out."
+
+* **The Risk:** Most post-manic relapses in the first 6 months aren't back into mania—they are a steep drop into **bipolar depression**.
+* **The 6-Month Mark:** It often takes 3–6 months for the brain to stabilize its chemistry. During this time, the "void" left by the mania makes you extremely susceptible to a depressive episode.
+
+### 2. The "False Sense of Security" (Medication Drop-off)
+
+The 3-to-6-month mark is the most common time for patients to stop taking their medication.
+
+* **The Logic:** "I feel normal again, so I must be cured." Or, "The meds make me feel flat/dull compared to how I felt before."
+* **The Consequence:** Because the brain hasn't fully "healed" from the structural stress of the manic episode, stopping mood stabilizers during this window leads to a relapse rate of over **80%**.
+
+### 3. Biological "Kindling"
+
+There is a theory in neurology called the **Kindling Effect**. It suggests that each manic episode makes the brain more sensitive to future episodes.
+
+* During the 6 months following mania, the brain is "primed." Even small stressors—like a bad night's sleep or a stressful work week—that you could normally handle can trigger a full-blown relapse because the "threshold" for an episode has been lowered.
+
+### 4. Circadian Rhythm Disruption
+
+Mania completely wrecks your internal clock. Even after you start sleeping again, your **circadian system** remains unstable for months.
+
+* Since sleep is the #1 regulator of mood in bipolar disorder, any slight disruption in your routine during this 6-month recovery phase can easily tip the scales back into an episode.
+
+---
+
+### How to protect yourself during this window:
+
+* **Prioritize Sleep Hygiene:** Think of sleep as your primary "medication" alongside your actual prescriptions.
+* **The "Rule of 6":** Treat the first 6 months as a period of "convalescence." Avoid major life changes (moving, new jobs, breakups) if possible.
+* **Track Sub-clinical Symptoms:** Watch for "mini" signs like increased irritability or staying up just one hour later than usual. These are often the "sparks" that lead to the fire.
+
+---
 
 # バイポーラー（双極性障害）の躁状態が終わった直後の脳内では、主に**神経伝達物質の急激な変化**が起きています。
 
