@@ -47,6 +47,61 @@ Check if there is a **"Clubhouse"** (like Fountain House in NYC or similar model
 | **Ease back in slowly** | Clubhouse / Transitional Employment | Guaranteed support and low-pressure starts. |
 
 ---
+Since you are in **Silicon Valley**, you are in one of the best places in the world for finding "progressive" employment, but also one of the most high-pressure. The "hustle culture" here can be a trigger for mania, so finding an environment that understands mental health is vital for your long-term stability.
+
+Here are the specific organizations and programs in the South Bay/Silicon Valley area that specialize in exactly what you’re looking for:
+
+---
+
+## 1. Momentum for Health (San Jose / Palo Alto)
+
+This is one of the largest nonprofit mental health providers in Santa Clara County.
+
+* **The Program:** They have a dedicated **Employment Services** division that uses the IPS (Individual Placement and Support) model I mentioned.
+* **Why it fits:** They don't just find "any job"; they help professionals in the valley get back into roles that match their skill level while providing a "job coach" to help navigate the conversation about your gap.
+* **Link:** [Momentum for Health - Employment Services](https://momentumforhealth.org/)
+
+## 2. NAMI Santa Clara County (San Jose)
+
+NAMI (National Alliance on Mental Illness) is the gold standard for "lived experience."
+
+* **The Opportunity:** They are constantly looking for **Peer Program Coordinators** and **Support Specialists**.
+* **The Vibe:** Everyone who works there has either had a mental health challenge or has a family member who has. You will never have to explain your "gap" there—they already understand it.
+* **Location:** They are based right near the SJSU campus.
+
+## 3. Zayante (The "Clubhouse" Model)
+
+Silicon Valley has a "Clubhouse" called **Zayante**, located in Sunnyvale/San Jose.
+
+* **What it is:** A community of people recovering from mental illness who work together to run the organization.
+* **Transitional Employment:** They partner with local Silicon Valley companies (like law firms, tech offices, and banks) to provide "guaranteed" part-time jobs for members to help them build their resumes back up.
+
+## 4. Santa Clara County "Peer Associate" Jobs
+
+The County of Santa Clara is one of the most progressive government employers in the country regarding mental health.
+
+* **The Role:** They have a specific job classification called **"Peer Associate."**
+* **The Requirement:** To get the job, you *must* have lived experience with mental illness and recovery. It’s a foot in the door to a stable government job with excellent benefits (which is huge for managing Bipolar Disorder).
+
+---
+
+## 5. Mission-Driven Tech Companies (The "Remote" Option)
+
+If you want to stay in the tech world but avoid the "burnout" of a traditional startup, several mental health tech companies are headquartered right in your backyard:
+
+* **Lyra Health (Burlingame):** They provide mental health benefits for companies like eBay and Adobe.
+* **BetterUp (San Francisco/Remote):** Focuses on coaching and mental fitness.
+* **Mindstrong (Mountain View):** Uses data to help people manage serious mental illness.
+
+---
+
+### A Strategy for You
+
+Since you’ve had two episodes, your **"Predictability"** is your new superpower. In your 40s in Silicon Valley, companies value people who can manage themselves.
+
+**My Suggestion for a Next Step:**
+Would you like me to help you find the specific **Peer Support Specialist certification** requirements for California? It’s a great way to turn your experience into a formal credential while you’re planning your next move.
+---
 
 ## Highest risk for another episode within first 6 months after a manic episode
 
