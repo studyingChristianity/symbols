@@ -1,3 +1,53 @@
+# Mental illness and getting a job
+
+That is an excellent instinct. In fact, there is a massive movement toward **"lived experience" hiring**, where having gone through something like a manic episode isn't a liability—it's actually a **job qualification.**
+
+If you are looking for workplaces that won't just "tolerate" your history but will actually value it, here are the best paths to explore:
+
+---
+
+## 1. Peer Support Specialist Roles
+
+This is one of the fastest-growing fields in mental health. Peer Support Specialists are people who have lived experience with mental health challenges and are trained to help others navigate their own recovery.
+
+* **The Value:** Your two episodes of mania are your "degree" here. You understand the "inside" of the experience in a way a doctor never will.
+* **The Organizations:** Look at the **VA (Veterans Affairs)**, local county behavioral health departments, or nonprofits like **NAMI** (National Alliance on Mental Illness).
+* **Certification:** In many states (like California), there are formal "Peer Support Specialist" certifications that can lead to stable, well-paying government or nonprofit jobs.
+
+## 2. Evidence-Based "Supported Employment" (IPS)
+
+There is a specific model called **Individual Placement and Support (IPS)**. It is designed specifically for people with "serious mental illness" (the clinical term for things like Bipolar Disorder) to get back into competitive, high-quality jobs.
+
+* **How it works:** IPS programs don't just put you in "entry-level" work; they help you find a job that fits your *actual* professional background (your 20 years of experience).
+* **Where to find it:** Search for **"IPS Supported Employment"** in your city or state. Many community mental health centers host these programs.
+
+## 3. Mental Health Tech & "Mission-Driven" Startups
+
+There is a whole industry of companies built to solve mental health crises. They are often much more progressive and understanding of "the gap."
+
+* **Companies to watch:** **Lyra Health**, **Spring Health**, **Modern Health**, or **Included Health**.
+* **The Vibe:** These companies often pride themselves on "walking the walk." If you apply for a corporate role (marketing, accounting, operations) at a mental health company, they are far less likely to blink at a gap caused by health reasons.
+
+## 4. "Clubhouse" International Model
+
+Check if there is a **"Clubhouse"** (like Fountain House in NYC or similar models) in your area.
+
+* These are community-based centers for people with mental health histories.
+* They have **Transitional Employment** programs where they partner with local businesses to provide "vetted" jobs. The employer knows the situation and provides a supportive environment.
+
+---
+
+### Summary Table: Which path fits you?
+
+| If you want to... | Look into... | Key Benefit |
+| --- | --- | --- |
+| **Use your experience to help others** | Peer Support Specialist | Your "gap" is your greatest asset. |
+| **Get back to your original career** | IPS Supported Employment | You get a coach to help navigate the "gap" talk. |
+| **Work in a modern/tech office** | Mental Health Tech (Lyra/Spring) | Culture of empathy and flexibility. |
+| **Ease back in slowly** | Clubhouse / Transitional Employment | Guaranteed support and low-pressure starts. |
+
+---
+
 ## Highest risk for another episode within first 6 months after a manic episode
 
 That 6-month window is often called the **"fragile period"** of recovery. While it feels like the storm has passed once the mania subsides, the brain is actually in a highly vulnerable state of recalibration.
