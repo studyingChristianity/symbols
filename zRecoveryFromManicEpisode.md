@@ -1,3 +1,105 @@
+# “Neurochemical fatigue” isn’t a formal diagnosis—it’s more of a **plain-language way to describe what can happen in the brain after a long period of overstimulation**, like a manic episode in Bipolar Disorder.
+
+Here’s what it really means, without jargon:
+
+---
+
+## The basic idea
+
+During mania, your brain is running in a kind of **high-output mode** for a long time:
+
+* Elevated activity in neurotransmitters like Dopamine (reward/motivation)
+* Changes in Serotonin (mood regulation)
+* Increased Norepinephrine (alertness/energy)
+
+If that state lasts a long time (like your 15-month episode), the brain doesn’t just snap back instantly. Instead, it often goes through a **rebound or recovery phase**.
+
+---
+
+## What “fatigue” means in this context
+
+It’s not that your brain is “broken”—it’s more like:
+
+### 1. Downregulation
+
+After being overstimulated, the brain reduces sensitivity:
+
+* Fewer or less responsive receptors for things like dopamine
+* Result: things feel flat, unrewarding, or dull
+
+This links to Anhedonia.
+
+---
+
+### 2. Depletion / imbalance
+
+Neurotransmitter systems can be temporarily out of balance:
+
+* Motivation drops
+* Energy crashes
+* Emotional range narrows
+
+---
+
+### 3. Circuit exhaustion
+
+Brain networks involved in:
+
+* motivation
+* decision-making
+* emotional regulation
+
+…can feel “slowed” or inefficient after being overactive for so long.
+
+---
+
+### 4. Stress system burnout
+
+Long mania often disrupts sleep and stresses the body, affecting systems like Cortisol:
+
+* Leads to fatigue, brain fog, low resilience
+
+---
+
+## How it feels subjectively
+
+People often describe it as:
+
+* “My brain feels empty or offline”
+* “I can’t feel pleasure like I used to”
+* “Everything takes effort”
+* “I’m slower, mentally and emotionally”
+
+---
+
+## Important reality check
+
+* This state is **reversible**, but it can take time
+* The longer/more intense the mania, the longer recovery may take
+* It’s not just psychological—it has real biological components
+
+---
+
+## What helps recovery
+
+You’re basically helping your brain **recalibrate**, not forcing it to “snap out of it”:
+
+* Consistent sleep (arguably the most important piece)
+* Medication (especially mood stabilizers)
+* Low, steady routine rather than bursts of effort
+* Gradual re-engagement with activities (even if they feel flat at first)
+* Reducing overstimulation (substances, erratic schedules, etc.)
+
+---
+
+## One honest note
+
+“Neurochemical fatigue” can *feel* like permanent damage—but it isn’t. It’s more like your brain is in a **recovery phase after being pushed way past its normal limits**.
+
+
+
+
+
 # Mental illness and getting a job
 
 That is an excellent instinct. In fact, there is a massive movement toward **"lived experience" hiring**, where having gone through something like a manic episode isn't a liability—it's actually a **job qualification.**
